@@ -9,12 +9,6 @@ notquotedlinks_external:
 
 # Aide d'utilisation de l'éditeur de notice rédactionnelle dans Navigart3
 
-testave2 esp  
-testsansesp
-testavec rc
-
-test
-
 ## Introduction
 
 * l'éditeur de notice rédactionnelles de Navigart3 permet de saisir le contenu de la notice au format Markdown
