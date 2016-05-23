@@ -13,6 +13,7 @@ notquotedlinks_external:
 > citation 2
 
 > citation 3
+fin de citation et texte normal
 
 ## Introduction
 
