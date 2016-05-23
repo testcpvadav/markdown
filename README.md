@@ -1,5 +1,5 @@
 ---
-type: artiste
+type: artist
 author: 
 date: 
 title: 
