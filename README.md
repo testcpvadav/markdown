@@ -8,27 +8,18 @@ notquotedlinks_external:
 ---
 
 # Aide d'utilisation de l'éditeur de notice rédactionnelle dans Navigart3
-test+2espaces  
-test+rc
 
-test+rc+rc
+> citation 1
+> citation 2
 
-
-test
-test
+> citation 3
 
 ## Introduction
 
 * l'éditeur de notice rédactionnelles de Navigart3 permet de saisir le contenu de la notice au format Markdown
 * il comporte dans son menu certaines fonctions mais pas toutes
 * l'aide permet de retrouver la syntaxe des fonctions du menu mais aussi de trouver la syntaxe d'autres fonctions
-    * sous liste 1
-    toujours liste 1
-        * sous liste 2
-    * sous liste 1
-        * sous liste 2
-toujours liste 1
-        
+ 
 ## Les enrichissements typographiques
 * **Pour avoir du texte en gras** : entourer le texte par ** ou __
 * *Pour avoir du texte en italique* : entourer le texte par * ou _
