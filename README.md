@@ -12,6 +12,7 @@ notquotedlinks_external:
 `code`
 
     bloc de code
+texte normal
 
 ## Introduction
 
