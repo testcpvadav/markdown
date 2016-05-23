@@ -9,12 +9,9 @@ notquotedlinks_external:
 
 # Aide d'utilisation de l'éditeur de notice rédactionnelle dans Navigart3
 
-> citation 1  
-> citation 2
+`code`
 
-> citation 3
-
-fin de citation et texte normal
+    bloc de code
 
 ## Introduction
 
