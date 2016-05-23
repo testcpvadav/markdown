@@ -9,7 +9,7 @@ notquotedlinks_external:
 
 # Aide d'utilisation de l'éditeur de notice rédactionnelle dans Navigart3
 
-> citation 1
+> citation 1  
 > citation 2
 
 > citation 3
