@@ -15,8 +15,9 @@ notquotedlinks_external:
 * l'éditeur de notice rédactionnelles de Navigart3 permet de saisir le contenu de la notice au format Markdown
 * il comporte dans son menu certaines fonctions mais pas toutes
 * l'aide permet de retrouver la syntaxe des fonctions du menu mais aussi de trouver la syntaxe d'autres fonctions
-
-
+    * sous liste 1
+        * sous liste 2
+        
 ## Les enrichissements typographiques
 * **Pour avoir du texte en gras** : entourer le texte par ** ou __
 * *Pour avoir du texte en italique* : entourer le texte par * ou _
