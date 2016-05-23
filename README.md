@@ -10,7 +10,11 @@ notquotedlinks_external:
 # Aide d'utilisation de l'éditeur de notice rédactionnelle dans Navigart3
 
 > citation
+
 # titre
+
+    bloc code
+    #titre
 
 
 paragraphe5 suite filet
