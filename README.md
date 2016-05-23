@@ -8,8 +8,12 @@ notquotedlinks_external:
 ---
 
 # Aide d'utilisation de l'éditeur de notice rédactionnelle dans Navigart3
-test+rc    
-test+rc+rc   
+test+2espaces  
+test+rc
+
+test+rc+rc
+
+test
 test
 
 ## Introduction
