@@ -17,6 +17,8 @@ notquotedlinks_external:
 * l'aide permet de retrouver la syntaxe des fonctions du menu mais aussi de trouver la syntaxe d'autres fonctions
     * sous liste 1
         * sous liste 2
+    * sous liste 1
+        * sous liste 2
         
 ## Les enrichissements typographiques
 * **Pour avoir du texte en gras** : entourer le texte par ** ou __
