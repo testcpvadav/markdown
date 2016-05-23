@@ -10,7 +10,7 @@ notquotedlinks_external:
 # Aide d'utilisation de l'éditeur de notice rédactionnelle dans Navigart3
 
 texte1 avec 2 espaces dans ligne suivante
-a
+
 texte2 sans espaces dans ligne suivante avec rc
 
 texte3
