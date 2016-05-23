@@ -13,7 +13,8 @@ notquotedlinks_external:
 paragraphe1
 
 paragraphe2
-paragraphe3## Introduction
+paragraphe3
+## Introduction
 
 * l'éditeur de notice rédactionnelles de Navigart3 permet de saisir le contenu de la notice au format Markdown
 * il comporte dans son menu certaines fonctions mais pas toutes
