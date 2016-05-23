@@ -11,10 +11,15 @@ notquotedlinks_external:
 
 > citation
 paragraphe1
-
+# titre
 paragraphe2
-
+    par de code
 paragraphe3
+* liste
+paragraphe4
+---
+paragraphe5 suite filet
+
 ## Introduction
 
 * l'éditeur de notice rédactionnelles de Navigart3 permet de saisir le contenu de la notice au format Markdown
