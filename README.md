@@ -21,7 +21,7 @@ notquotedlinks_external:
     * sous liste 1
         * sous liste 2
 
-   toujours liste 1
+toujours liste 1
         
 ## Les enrichissements typographiques
 * **Pour avoir du texte en gras** : entourer le texte par ** ou __
