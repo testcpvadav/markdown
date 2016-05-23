@@ -14,8 +14,7 @@ notquotedlinks_external:
 # titre
 
     bloc code
-    
-    > titre
+titre
 
 
 paragraphe5 suite filet
