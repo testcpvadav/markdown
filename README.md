@@ -63,7 +63,7 @@ puis saisir un espace après le signe « : » et taper à la suite le texte de l
 
 ## Insérer un lien externe
 Saisir entre crochets le texte sur lequel on souhaite faire porter le lien, suivi de l’adresse du lien entre parenthèses.  
-[texte du lien cliquable](http://adresse-du-lien-a-saisir-ou-coller)
+[texte du lien cliquable](http://adresse-du-lien-a-saisir-ou-coller "titre du lien")
 
 ## Faire des listes
 Sauter une ligne avant le début de la liste.
