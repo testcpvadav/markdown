@@ -9,11 +9,11 @@ notquotedlinks_external:
 
 # Aide d'utilisation de l'éditeur de notice rédactionnelle dans Navigart3
 
+texte1 avec 2 espaces dans ligne suivante
+  
+texte2 sans espaces dans ligne suivante avec rc
 
-texte  
-ligne suivante
-
-texte  avec 2 espaces
+texte3
 
 ## Introduction
 
