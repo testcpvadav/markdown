@@ -1,1 +1,48 @@
-# test
+Chuck Close
+
+Chuck Close
+
+
+
+Le sujet – l’unique sujet – de l’œuvre picturale de Closeest la photo d’identité\. L’histoire de l’art raconte la métamorphose descolonnes en statues et leur éveil au contact de la vie ; leurs jambes seséparent, risquent un pas, les bras s’écartent du corps\. Le saut qualitatifsuivant dote la figure humaine d’un caractère ; elle n’est plus seulementvivante, elle est expressive\. Comment un corps signifie\-t\-il ? Le portraitdevient le fleuron d’une sémiotique du corps considéré comme manifestationd’une âme ou, du moins, d’une personne\. Jean\-Jacques Courtine et ClaudineHaroche ont montré comment ses protocoles dessinent un tabou du corpsinexpressif, du corps délaissé par le sens\.
+
+
+
+Les visages de Close vont dans la direction inverse\. Ce sontdes portraits génériques\. Il s’agit bien d’individus, mais l’individuel y estsérialisé, moulé dans une stéréotypie anthropométrique qui fait remonter à lasurface la masse des parasites inexpressifs \(système pileux, grain de la peau,etc\.\)\. Le visage se décompose, tombe dans une inertie qui n’a pas la noblessedu cadavre, c’est l’inertie flasque du citoyen américain\.
+
+
+
+Le format des tableaux accentue cette inexpressivité\. Commeune phrase ralentie par le mot à mot, ces visages sont épelés, décomposés parl’agrandissement pictural de la photo d’identité\. Il se fait au moyen d’unemise au carré qui, à son tour, les soumet à la syntaxe d’un espace qui leur estétranger\. Sa grille orthogonale impose une désinformation affective aux courbesdu visage\. Au lieu qu’il se donne, d’un seul coup, comme un toutindécomposable, cette grille décompose le traditionnel tout plus grand que lasomme de ses parties qu’est un visage : le tout, ici, est débordé par la sommede ses parcelles\. Ces portraits proposent une version cruciverbiste du baiser àAlbertine\.
+
+
+
+Leur production se fait en deux temps : un moment indiciel\(la photo\) et un moment iconique \(sa transposition picturale\)\. Dans la brèvevariation expérimentale constituée par les douze minutes du film de 1970, <istyle='mso\-bidi\-font\-style:normal'>Slowpan\-Bob, ces deux moments serejoignent : l’image photographique n’est pas reprise par la transpositioniconique habituelle\.
+
+
+
+Il faut d’abord décrire le film\. J’imagine que Close a faits’asseoir le Bob du titre sur le tabouret habituel\. Il a planté son pied, vissésa caméra et, après avoir appuyé sur le déclencheur, s’est concentré surl’horizontalité du mouvement avec lequel il balayait, de gauche à droite, lechamp constitué par le templum dans lequel il avait encadré le visage dumodèle\. Ce mouvement lévogyre se répète une vingtaine de fois\. À chaquepassage, la caméra descend d’un cran ; partie du sommet chevelu du crâne, ellefinit au niveau de l’encolure\.
+
+
+
+Le film frappe d’abord par son continu\. L’image se déplacelatéralement, faisant défiler, comme sur un tapis roulant, sans accroc niraccord, les quelque vingt bandes en quoi, du fait de la proximité del’objectif, chaque passage de la caméra découpe le visage de Bob\. À peinedisparues à droite, ces tranches de visage resurgissent sur le bord gauche del’image, comme dans ces mises en scène où des personnages quittent la scènecôté jardin pour aussitôt réapparaître côté cour, d’où ils retraversent lascène de la manière la plus naturelle du monde\. 
+
+
+
+Ou comme une machine à écrire dont le chariot ne reviendraitpas en fin de course : on ne voit pas la caméra revenir sur la ligne de départ\.Tout se passe comme si le bord droit, à peine touché, était automatiquementconverti en bord gauche\. Et on repart\. Ou plutôt on continue\. Il n’y a pas eud’arrêt\.
+
+
+
+Cette continuité est d’autant plus frappante que le film estsans coupure, sans couture\. Close ne l’a pas monté\. Ce qui est montré, c’est lalongueur exacte, intacte de la pellicule impressionnée\. Le film dure douzeminutes ; la caméra a tourné pendant douze minutes, mais il a fallu plus dedouze minutes de pose\. Si les retours n’ont pas été retranchés, c’est qu’ilsn’ont pas laissé d’image : la caméra était arrêtée\. Chacun de ces arrêts laissepourtant sur la pellicule un bref éclair lumineux, une sorte de “ fondu\-enchaîné” dont la répétition évoque la scansion isochrone d’une rime\. Ces syncopesfonctionnent comme des points de capiton entre les deux espaces qu’articule latopologie du film et dont chacun met en jeu deux manières opposées pour lesbords de l’image de se rapporter l’un à l’autre : de gauche à droite,s’écartant l’un de l’autre, le flux produit de l’image ; de droite à gauche,soudés l’un sur l’autre, le reflux produit du rythme ; il interdit, en mêmetemps que l’espacement, le dépôt iconique \(seul reste l’éblouissement del’identité des contraires ; l’éclair de l’extrême droite convertie en extrêmegauche\)\.
+
+
+
+Évidemment, c’est la caméra qui bouge\. Le poseur est assis,immobile \(il ne joue pas, ce n’est pas un acteur\)\. Il y a pourtant uneexception – ou une transgression – à cette impassibilité\. Au quatrième passagede la caméra, maintenant descendue au niveau des yeux, la paupière inférieuregauche cligne\. Ce réflexe trahit la présence d’un organisme vivant \(Close nefilme pas une photo d’identité de Bob\), ce qui inscrit le film dans le projetgénéral de l’œuvre de Close dans la mesure où ce mouvement n’est ni lamanifestation d’une personnalité ni l’expression d’un sentiment ; il estl’effet physique de la proximité de la caméra, une réaction défensive purementmécanique de l’organe de la vue\. Sur un plan cinématographique, il estl’équivalent de ce que sont les cheveux, une barbe, une éventuelle paire delunettes \(Bob n’en a pas\) ou le grain d’une peau sur le plan physionomique\.Courbet et Manet ont fait scandale parce qu’ils traitaient les vêtements avecle même respect iconographique qu’un visage, faisant du portrait \(comme le ditBataille\) une variété de la nature morte\. C’est une opération du même type queClose effectue lorsque, sans sortir du visage, il donne au prélèvementépidermique le pas sur la caractéristique expressive\.
+
+
+
+D\. H\.
+
+
+
+<o:p>&nbsp;</o:p>
+
