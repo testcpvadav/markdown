@@ -1,3 +1,8 @@
+     
+
+Chuck Close
+
+
 1. liste principale : ligne 1 : niveau 0
 2. liste principale : ligne 2 : niveau 0
     1. liste principale : ligne 3 : niveau 1
@@ -7,11 +12,53 @@
     3. liste principale : ligne 7 : niveau 1
 3. liste principale : ligne 8 : niveau 0 
 
-1. liste principale : ligne 1 : niveau 0
-2. liste principale : ligne 2 : niveau 0
-    1. liste principale : ligne 3 : niveau 1
-    2. liste principale : ligne 4 : niveau 1
-        1. liste principale : ligne 5 : niveau 2
-        2. liste principale : ligne 6 : niveau 2
-    3. liste principale : ligne 7 : niveau 1
-3. liste principale : ligne 8 : niveau 0e : ligne 8 : niveau 0 
+* liste principale : ligne 1 : niveau 0
+* liste principale : ligne 2 : niveau 0
+    * liste principale : ligne 3 : niveau 1
+    * liste principale : ligne 4 : niveau 1
+        * liste principale : ligne 5 : niveau 2
+        * liste principale : ligne 6 : niveau 2
+    * liste principale : ligne 7 : niveau 1
+* liste principale : ligne 8 : niveau 0
+
+Le sujet – l’unique sujet – de l’œuvre picturale de Close est la photo d’identité\. L’histoire de l’art raconte la métamorphose des colonnes en statues et leur éveil au contact de la vie ; leurs jambes se séparent, risquent un pas, les bras s’écartent du corps\. Le saut qualitatif suivant dote la figure humaine d’un caractère ; elle n’est plus seulement vivante, elle est expressive\. Comment un corps signifie\-t\-il ? Le portrait devient le fleuron d’une sémiotique du corps considéré comme manifestation d’une âme ou, du moins, d’une personne\. Jean\-Jacques Courtine et Claudine Haroche ont montré comment ses protocoles dessinent un tabou du corps inexpressif, du corps délaissé par le sens\.
+
+
+Les visages de Close vont dans la direction inverse\. Ce sont des portraits génériques\. Il s’agit bien d’individus, mais l’individuel y est sérialisé, moulé dans une stéréotypie anthropométrique qui fait remonter à la surface la masse des parasites inexpressifs \(système pileux, grain de la peau, etc\.\)\. Le visage se décompose, tombe dans une inertie qui n’a pas la noblesse du cadavre, c’est l’inertie flasque du citoyen américain\.
+
+ 
+
+Le format des tableaux accentue cette inexpressivité\. Comme une phrase ralentie par le mot à mot, ces visages sont épelés, décomposés par l’agrandissement pictural de la photo d’identité\. Il se fait au moyen d’une mise au carré qui, à son tour, les soumet à la syntaxe d’un espace qui leur est étranger\. Sa grille orthogonale impose une désinformation affective aux courbes du visage\. Au lieu qu’il se donne, d’un seul coup, comme un tout indécomposable, cette grille décompose le traditionnel tout plus grand que la somme de ses parties qu’est un visage : le tout, ici, est débordé par la somme de ses parcelles\. Ces portraits proposent une version cruciverbiste du baiser à Albertine\.
+
+ 
+
+Leur production se fait en deux temps : un moment indiciel \(la photo\) et un moment iconique \(sa transposition picturale\)\. Dans la brève variation expérimentale constituée par les douze minutes du film de 1970, Slowpan\-Bob, ces deux moments se rejoignent : l’image photographique n’est pas reprise par la transposition iconique habituelle\.
+
+ 
+
+Il faut d’abord décrire le film\. J’imagine que Close a fait s’asseoir le Bob du titre sur le tabouret habituel\. Il a planté son pied, vissé sa caméra et, après avoir appuyé sur le déclencheur, s’est concentré sur l’horizontalité du mouvement avec lequel il balayait, de gauche à droite, le champ constitué par le templum dans lequel il avait encadré le visage du modèle\. Ce mouvement lévogyre se répète une vingtaine de fois\. À chaque passage, la caméra descend d’un cran ; partie du sommet chevelu du crâne, elle finit au niveau de l’encolure\.
+
+ 
+
+Le film frappe d’abord par son continu\. L’image se déplace latéralement, faisant défiler, comme sur un tapis roulant, sans accroc ni raccord, les quelque vingt bandes en quoi, du fait de la proximité de l’objectif, chaque passage de la caméra découpe le visage de Bob\. À peine disparues à droite, ces tranches de visage resurgissent sur le bord gauche de l’image, comme dans ces mises en scène où des personnages quittent la scène côté jardin pour aussitôt réapparaître côté cour, d’où ils retraversent la scène de la manière la plus naturelle du monde\. 
+
+ 
+
+Ou comme une machine à écrire dont le chariot ne reviendrait pas en fin de course : on ne voit pas la caméra revenir sur la ligne de départ\. Tout se passe comme si le bord droit, à peine touché, était automatiquement converti en bord gauche\. Et on repart\. Ou plutôt on continue\. Il n’y a pas eu d’arrêt\.
+
+ 
+
+Cette continuité est d’autant plus frappante que le film est sans coupure, sans couture\. Close ne l’a pas monté\. Ce qui est montré, c’est la longueur exacte, intacte de la pellicule impressionnée\. Le film dure douze minutes ; la caméra a tourné pendant douze minutes, mais il a fallu plus de douze minutes de pose\. Si les retours n’ont pas été retranchés, c’est qu’ils n’ont pas laissé d’image : la caméra était arrêtée\. Chacun de ces arrêts laisse pourtant sur la pellicule un bref éclair lumineux, une sorte de “ fondu\-enchaîné ” dont la répétition évoque la scansion isochrone d’une rime\. Ces syncopes fonctionnent comme des points de capiton entre les deux espaces qu’articule la topologie du film et dont chacun met en jeu deux manières opposées pour les bords de l’image de se rapporter l’un à l’autre : de gauche à droite, s’écartant l’un de l’autre, le flux produit de l’image ; de droite à gauche, soudés l’un sur l’autre, le reflux produit du rythme ; il interdit, en même temps que l’espacement, le dépôt iconique \(seul reste l’éblouissement de l’identité des contraires ; l’éclair de l’extrême droite convertie en extrême gauche\)\.
+
+ 
+
+Évidemment, c’est la caméra qui bouge\. Le poseur est assis, immobile \(il ne joue pas, ce n’est pas un acteur\)\. Il y a pourtant une exception – ou une transgression – à cette impassibilité\. Au quatrième passage de la caméra, maintenant descendue au niveau des yeux, la paupière inférieure gauche cligne\. Ce réflexe trahit la présence d’un organisme vivant \(Close ne filme pas une photo d’identité de Bob\), ce qui inscrit le film dans le projet général de l’œuvre de Close dans la mesure où ce mouvement n’est ni la manifestation d’une personnalité ni l’expression d’un sentiment ; il est l’effet physique de la proximité de la caméra, une réaction défensive purement mécanique de l’organe de la vue\. Sur un plan cinématographique, il est l’équivalent de ce que sont les cheveux, une barbe, une éventuelle paire de lunettes \(Bob n’en a pas\) ou le grain d’une peau sur le plan physionomique\. Courbet et Manet ont fait scandale parce qu’ils traitaient les vêtements avec le même respect iconographique qu’un visage, faisant du portrait \(comme le dit Bataille\) une variété de la nature morte\. C’est une opération du même type que Close effectue lorsque, sans sortir du visage, il donne au prélèvement épidermique le pas sur la caractéristique expressive\.
+
+ 
+
+D\. H\.
+
+ 
+
+
+   
