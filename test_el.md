@@ -16,15 +16,15 @@ De 1968 à 1978,  s’installe à Paris\. Grâce à deux bourses d’études, el
 
  
 
-C’est lors de sa formation à Paris que l’œuvre de devient plus introspective\. Le dépaysement et le souvenir de son pays lui font prendre conscience de son isolement face à l’immense nature qui l’entoure\. &quot;J’ai éliminé toute les figures humaines et laissé chanter la nature\.&quot;[]()[\[1\]](http://vasarely/newmedia-arts/cgi-bin/f2doc-art\.asp?lg=FRA&amp;na=VARELA&amp;pna=CYBELE&amp;ID=D010586&amp;DOC=bio\#_ftn1\#_ftn1)\[1\]
+C’est lors de sa formation à Paris que l’œuvre de devient plus introspective\. Le dépaysement et le souvenir de son pays lui font prendre conscience de son isolement face à l’immense nature qui l’entoure\. &quot;J’ai éliminé toute les figures humaines et laissé chanter la nature\.&quot;[\[1\]](http://vasarely/newmedia-arts/cgi-bin/f2doc-art\.asp?lg=FRA&amp;na=VARELA&amp;pna=CYBELE&amp;ID=D010586&amp;DOC=bio\#_ftn1\#_ftn1)\[1\]
 
  
 
- fait de la peinture sa technique de base, tout en s’appropriant d’autres supports\. Par le biais de la vidéo et de la photographie, elle porte plus loin sa recherche vers les questions du temps et de l’apparence\. Cette démarche est visible, notamment dans Images \(1976\), vidéo dans laquelle l’artiste analyse les rayons lumineux et leur déconstruction dans l’espace\. Elle procède de la même façon pour la réalisation de ses toiles\. Son travail repose sur une méthode de lecture de la lumière&nbsp;: la &quot;structuration du rayon lumineux et distribution des ombres&quot;[]()[\[2\]](http://vasarely/newmedia-arts/cgi-bin/f2doc-art\.asp?lg=FRA&amp;na=VARELA&amp;pna=CYBELE&amp;ID=D010586&amp;DOC=bio\#_ftn2\#_ftn2)\[2\]\. 
+ fait de la peinture sa technique de base, tout en s’appropriant d’autres supports\. Par le biais de la vidéo et de la photographie, elle porte plus loin sa recherche vers les questions du temps et de l’apparence\. Cette démarche est visible, notamment dans Images \(1976\), vidéo dans laquelle l’artiste analyse les rayons lumineux et leur déconstruction dans l’espace\. Elle procède de la même façon pour la réalisation de ses toiles\. Son travail repose sur une méthode de lecture de la lumière&nbsp;: la &quot;structuration du rayon lumineux et distribution des ombres&quot;[\[2\]](http://vasarely/newmedia-arts/cgi-bin/f2doc-art\.asp?lg=FRA&amp;na=VARELA&amp;pna=CYBELE&amp;ID=D010586&amp;DOC=bio\#_ftn2\#_ftn2)\[2\]\. 
 
  
 
-En 1980, change son traitement du cadrage\. &quot;L’artiste nous projette alors dans l’immensité du ciel, comme à l’avant d’un avion de haute altitude\.&quot;[]()[\[3\]](http://vasarely/newmedia-arts/cgi-bin/f2doc-art\.asp?lg=FRA&amp;na=VARELA&amp;pna=CYBELE&amp;ID=D010586&amp;DOC=bio\#_ftn3\#_ftn3)\[3\]
+En 1980, change son traitement du cadrage\. &quot;L’artiste nous projette alors dans l’immensité du ciel, comme à l’avant d’un avion de haute altitude\.&quot;[\[3\]](http://vasarely/newmedia-arts/cgi-bin/f2doc-art\.asp?lg=FRA&amp;na=VARELA&amp;pna=CYBELE&amp;ID=D010586&amp;DOC=bio\#_ftn3\#_ftn3)\[3\]
 
  
 
@@ -47,15 +47,21 @@ Priscilia Marques
 
   
 
-[]()[\[1\]](http://vasarely/newmedia-arts/cgi-bin/f2doc-art\.asp?lg=FRA&amp;na=VARELA&amp;pna=CYBELE&amp;ID=D010586&amp;DOC=bio\#_ftnref1\#_ftnref1)\[1\] RESTANY Pierre, , &nbsp;: Surroundings&nbsp;: pinturas, fotos, desenhos, video&nbsp;: Museu Nacional de Belas Artes, Rio de Janeiro, septembre\-octobre 2003
+[\[1\]](http://vasarely/newmedia-arts/cgi-bin/f2doc-art\.asp?lg=FRA&amp;na=VARELA&amp;pna=CYBELE&amp;ID=D010586&amp;DOC=bio\#_ftnref1\#_ftnref1)\[1\] RESTANY Pierre, , &nbsp;: Surroundings&nbsp;: pinturas, fotos, desenhos, video&nbsp;: Museu Nacional de Belas Artes, Rio de Janeiro, septembre\-octobre 2003
 
  
 
-[]()[\[2\]](http://vasarely/newmedia-arts/cgi-bin/f2doc-art\.asp?lg=FRA&amp;na=VARELA&amp;pna=CYBELE&amp;ID=D010586&amp;DOC=bio\#_ftnref2\#_ftnref2)\[2\] Op\. cit p\.36
+[\[2\]](http://vasarely/newmedia-arts/cgi-bin/f2doc-art\.asp?lg=FRA&amp;na=VARELA&amp;pna=CYBELE&amp;ID=D010586&amp;DOC=bio\#_ftnref2\#_ftnref2)\[2\] Op\. cit p\.36
 
  
 
-[]()[\[3\]](http://vasarely/newmedia-arts/cgi-bin/f2doc-art\.asp?lg=FRA&amp;na=VARELA&amp;pna=CYBELE&amp;ID=D010586&amp;DOC=bio\#_ftnref3\#_ftnref3)\[3\] Op\. cit, p\.8
+[\[3\]](http://vasarely/newmedia-arts/cgi-bin/f2doc-art\.asp?lg=FRA&amp;na=VARELA&amp;pna=CYBELE&amp;ID=D010586&amp;DOC=bio\#_ftnref3\#_ftnref3)\[3\] Op\. cit, p\.8
+
+ 
+
+&nbsp;
+
+   .8
 
  
 
