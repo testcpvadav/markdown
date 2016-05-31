@@ -61,29 +61,4 @@ Priscilia Marques
 
 &nbsp;
 
-   it, p\.8
-
- 
-
-&nbsp;
-
-   .8
-
- 
-
-&nbsp;
-
-   rts/cgi-bin/f2doc-art\.asp?lg=FRA&amp;na=VARELA&amp;pna=CYBELE&amp;ID=D010586&amp;DOC=bio\#_ftnref1\#_ftnref1)\[1\] RESTANY Pierre, <st1:PersonName ProductID="VARELA Cyb&\#65512;le" w:st="on">VARELA Cybèle</st1:PersonName>, <st1:PersonName ProductID="Cyb&\#65512;le Varela" w:st="on">Cybèle Varela</st1:PersonName>&nbsp;: Surroundings&nbsp;: pinturas, fotos, desenhos, video&nbsp;: Museu Nacional de Belas Artes, Rio de Janeiro, septembre\-octobre 2003
-
- 
-
-[]()[\[2\]](http://vasarely/newmedia-arts/cgi-bin/f2doc-art\.asp?lg=FRA&amp;na=VARELA&amp;pna=CYBELE&amp;ID=D010586&amp;DOC=bio\#_ftnref2\#_ftnref2)\[2\] Op\. cit p\.36
-
- 
-
-[]()[\[3\]](http://vasarely/newmedia-arts/cgi-bin/f2doc-art\.asp?lg=FRA&amp;na=VARELA&amp;pna=CYBELE&amp;ID=D010586&amp;DOC=bio\#_ftnref3\#_ftnref3)\[3\] Op\. cit, p\.8
-
- 
-
-
    
