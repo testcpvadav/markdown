@@ -145,7 +145,7 @@ Michel Maurer, piano
 &nbsp;
 
 
-**Visage II **\(1956\) \- 14’  
+**Visage II**\(1956\) \- 14’  
 \(2 trompettes, 1 trombone, 1 tuba, piano, 6 percussions\.\)
 
 
