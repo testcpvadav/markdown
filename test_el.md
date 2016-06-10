@@ -118,6 +118,7 @@ NoticeExpositions personnelles \(sélection\)
 **1972
 ** Bykert Gallery, New York \(Etats\-Unis\)
 
+
  Expositions collectives \(sélection\)**
 ** **2008\-2009
 ** *Vidéo, un art, une histoire, 1965\-2007*, Musée Fabre, Montpellier \(France\)
