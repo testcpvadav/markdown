@@ -2,41 +2,41 @@ NoticeExpositions personnelles \(sélection\)
 **2008** 
 *Predominance of our constructs*, Albion, Londres \(Royaume\-Uni\)
 
-**2007\-2008
-** *Edge of the Ocean, Video Work by Peter Campus, 1970\-2008*, \[itinérante\], Parrish Art Museum, New York \(Etats\-Unis\)
+**2007\-2008** 
+*Edge of the Ocean, Video Work by Peter Campus, 1970\-2008*, \[itinérante\], Parrish Art Museum, New York \(Etats\-Unis\)
 
-**2005
-** *sweepin’*, Locks Gallery, Philadelphie, Pa\. \(Etats\-Unis\)
+**2005** 
+*sweepin’*, Locks Gallery, Philadelphie, Pa\. \(Etats\-Unis\)
 
-**2004
-** *Time fiction’s*, Leslie Tonkonow Artworks \+ Projects, New York \(Etats\-Unis\)
+**2004** 
+*Time fiction’s*, Leslie Tonkonow Artworks \+ Projects, New York \(Etats\-Unis\)
 
 **2003** 
 *Peter Campus, Analog \+ Digital Video \+ Foto 1970\-2003*, Kunsthalle Bremen \(Allemagne\)
  Antiguo Colegio de San Ildefonso, Mexico \(Mexique\)
 
-**2002
-** *Peter Campus Video and Photography from the 1970s and Recent Video* Works, Leslie Tonkonow Artworks \+ Projects, New York \(Etats\-Unis\)
+**2002** 
+*Peter Campus Video and Photography from the 1970s and Recent Video* Works, Leslie Tonkonow Artworks \+ Projects, New York \(Etats\-Unis\)
  http://www\.tonkonow\.com/campus\.html
 
-**1998
-** Paula Cooper Gallery, New York \(Etats\-Unis\)
+**1998** 
+Paula Cooper Gallery, New York \(Etats\-Unis\)
 
-**1997
-** Rena Bransten, San Francisco, Calif\. \(Etats\-Unis\)
+**1997** 
+Rena Bransten, San Francisco, Calif\. \(Etats\-Unis\)
  Tower Air Terminal, JFK International Airport, New York \(Etats\-Unis\)
 
-**1996
-** Bohen Foundation, New York \(Etats\-Unis\)
+**1996** 
+Bohen Foundation, New York \(Etats\-Unis\)
  Baxter Art Gallery, Maine College of Art, Portland, Or\. \(Etats\-Unis\)
  Paula Cooper Gallery, New York \(Etats\-Unis\)
 
-**1994
-** *Shadow Projection*, Center for Curatorial Studies, Video Gallery, Bard College, Annandale\-on\-Hudson, N\.Y\. \(Etats\-Unis\)
+**1994** 
+*Shadow Projection*, Center for Curatorial Studies, Video Gallery, Bard College, Annandale\-on\-Hudson, N\.Y\. \(Etats\-Unis\)
 *Grayscale Fields*, Inaugural Internet Art Gallery Exhibition, http://www\.art\.uiuc\.edu/ad319/@art\_campus/campus\_images\.html
 
-**1993
-** Paula Cooper Gallery, New York \(Etats\-Unis\)
+**1993** 
+Paula Cooper Gallery, New York \(Etats\-Unis\)
  La Box, Bourges \(France\)
 
 **1992** 
@@ -66,8 +66,8 @@ NoticeExpositions personnelles \(sélection\)
  Paula Cooper Gallery, New York \(Etats\-Unis\)
  Freedman Gallery, Albright College, Reading, Pa\. \(Etats\-Unis\) ; Institute of Contemporary Art, University of Pennsylvania, Philadelphie, Pa\. \(Etats\-Unis\)
 
-**1986
-** Paula Cooper Gallery, New York \(Etats\-Unis\)
+**1986** 
+Paula Cooper Gallery, New York \(Etats\-Unis\)
 
 **1985** 
  Paula Cooper Gallery, New York \(Etats\-Unis\)
@@ -115,36 +115,36 @@ NoticeExpositions personnelles \(sélection\)
 **1973** 
  Bykert Gallery, New York \(Etats\-Unis\)
 
-**1972
-** Bykert Gallery, New York \(Etats\-Unis\)
+**1972** 
+Bykert Gallery, New York \(Etats\-Unis\)
 
 
- Expositions collectives \(sélection\)**
-** **2008\-2009
-** *Vidéo, un art, une histoire, 1965\-2007*, Musée Fabre, Montpellier \(France\)
+ Expositions collectives \(sélection\)
+**2008\-2009** 
+*Vidéo, un art, une histoire, 1965\-2007*, Musée Fabre, Montpellier \(France\)
 
-**2007\-2008
-** *Colecção Centre Pompidou no Museu do Chiado, Centre Pompidou Novos Media 1965\-2003*, Museu nacional de arte contemporânea, Museu do Chiado, Lisbonne \(Portugal\)
+**2007\-2008** 
+*Colecção Centre Pompidou no Museu do Chiado, Centre Pompidou Novos Media 1965\-2003*, Museu nacional de arte contemporânea, Museu do Chiado, Lisbonne \(Portugal\)
 **
- 2007
-** *Centre Pompidou, Video Art 1965\-2005*, Australian Centre for the Moving Image, Melbourne \(Australie\)
+ 2007** 
+*Centre Pompidou, Video Art 1965\-2005*, Australian Centre for the Moving Image, Melbourne \(Australie\)
 
-**2006\-2007
-** *The New Media Collection 1965\-2005*, Museum of Contemporary Art, Sydney \(Australie\)
+**2006\-2007** 
+*The New Media Collection 1965\-2005*, Museum of Contemporary Art, Sydney \(Australie\)
 **
- 2006
-** *Beyond Cinema, the Art of Projection*, Hamburger Bahnhof, Berlin \(Allemagne\)
+ 2006** 
+*Beyond Cinema, the Art of Projection*, Hamburger Bahnhof, Berlin \(Allemagne\)
 *L’âge de la performance*, La Bâtie, Festival de Genève, Centre pour l’image contemporaine Saint\-Gervais, Genève \(Suisse\)
 *Balance and Power*, Rose Art Museum, Brandeis University, Waltham, Mass\. \(Etats\-Unis\)*
  Video, An Art, a History, 1965\-2005, New Media Collection, Centre Pompidou*, Miami Art Central, Miami, Fla\. \(Etats\-Unis\)
 *New Media Collection, 1965\-2005*, Centre Pompidou, Taipei Fine Arts Museum, Taipei \(Taiwan\)
  Museum of Contemporary Art, Belgrade \(Sérbie\-Monténégro\)
 **
- 2005\-2006
-** *Temps de vídeo 1965\-2005, Col\.lecció Nouveaux Medias del Centre Pompidou amb la participació de la col\.lecció d’art contemporani Fundació ‘La Caixa’*, Fundació La Caixa, Barcelone \(Espagne\)
+ 2005\-2006** 
+*Temps de vídeo 1965\-2005, Col\.lecció Nouveaux Medias del Centre Pompidou amb la participació de la col\.lecció d’art contemporani Fundació ‘La Caixa’*, Fundació La Caixa, Barcelone \(Espagne\)
 **
- 2005
-** *The Continuous Present, Peter Campus &amp; Anthony McCall*, Leslie Tonkonow Artworks \+ Projects, New York \(Etats\-Unis\)
+ 2005** 
+*The Continuous Present, Peter Campus &amp; Anthony McCall*, Leslie Tonkonow Artworks \+ Projects, New York \(Etats\-Unis\)
 
 **2005** 
 *Balance and Power, Performance and Surveillance in Video Art*, Krannert Art Museum, Champaign, Ill\. \(Etats\-Unis\)
@@ -238,8 +238,8 @@ NoticeExpositions personnelles \(sélection\)
 *Blind Spo*t, Dallas Artists Research and Exhibition, Dallas Tex\. \(Etats\-Unis\)
 *Recent Acquisitions, Photography*, Museum of Modern Art, New York \(Etats\-Unis\)
 
-**1994
-** *Second Nature*,*The Friends of Photography*, Ansel Adams Center for Photography, San Francisco, Calif\. \(Etats\-Unis\)
+**1994** 
+*Second Nature*,*The Friends of Photography*, Ansel Adams Center for Photography, San Francisco, Calif\. \(Etats\-Unis\)
 *Holiday Exhibition*, Paula Cooper Gallery, New York \(Etats\-Unis\)
 *Big Shots Little Shots*, Transamerica Pyramid Lobby, San Francisco, Calif\. \(Etats\-Unis\)
 *Metamorphoses, Photography in the Electronic Age \(an Aperture exhibition\)*, Fashion Institute of Technology, New York \(Etats\-Unis\) ; Blaffer Gallery, University of Houston, Houston, Tex\. \(Etats\-Unis\) ; Tampa Museum of Art, Tampa, Fla\. \(Etats\-Unis\) ; Philadelphia Museum of Art, Philadelphie, Pa\. \(Etats\-Unis\) ; San Jose Museum of Art, San Jose, Calif\. \(Etats\-Unis\) ; Kemper Museum of Contemporary Art and Design, Kansas City, Mo\. \(Etats\-Unis\) ; Ackland Art Museum, University of North Carolina, Chapel Hill, N\.C\. \(Etats\-Unis\)
@@ -249,8 +249,8 @@ NoticeExpositions personnelles \(sélection\)
 *Nature Studies*, Schmidt Contemporary Art, St\. Louis, Mich\. \(Etats\-Unis\)
 *Pictures of the Real World \(In Real Time\)* / sous la dir\. de Robert Nickas, Paula Cooper Gallery, New York \(Etats\-Unis\) ; Le Consortium, Dijon, France ; Le Capitou, Centre d'Art Contemporain, Fréjus \(France\) ; Städtisches Galerie, Göppingen \(Allemagne\) ; Massimo de Carlo, Milan \(Italie\) ; Hara Museum of Contemporary Art, Tokyo \(Japon\)
 
-**1993
-** *Wings of Change, Images of Contradiction and Concensus*, Directors Guild, Giorgio Beverly Hills, Beverly Hills, Calif\. \(Etats\-Unis\)
+**1993** 
+*Wings of Change, Images of Contradiction and Concensus*, Directors Guild, Giorgio Beverly Hills, Beverly Hills, Calif\. \(Etats\-Unis\)
 *Whitney Biennial 1993*, Whitney Museum of American Art, New York \(Etats\-Unis\) ; National Museum of Contemporary Art, Séoul \(Corée\)
 *Thresholds &amp; Enclosures*, San Francisco Museum of Modern Art, San Francisco, Calif\. \(Etats\-Unis\)
 *Binaera*, Kunsthalle, Vienne \(Autriche\)
@@ -327,21 +327,21 @@ NoticeExpositions personnelles \(sélection\)
 *ROSC'80*, National Gallery of Ireland, University College, Dublin \(Irlande\)
 *Extensions of Photography*, Santa Barbara Art Museum, University of California, Santa Barbara, Calif\. \(Etats\-Unis\)
 
-**1979
-** *5 artists\-5 technologies, Environmental light works by Peter Campus, Harriet Casdin\-Silver, Paul Earls, Otto Piene, Alejandro Sina*, Art Musuem, Grand Rapids, Mich\. \(Etats\-Unis\)
+**1979** 
+*5 artists\-5 technologies, Environmental light works by Peter Campus, Harriet Casdin\-Silver, Paul Earls, Otto Piene, Alejandro Sina*, Art Musuem, Grand Rapids, Mich\. \(Etats\-Unis\)
 *The Elusive Image*,Walker Art Center, Minneapolis, Minn\. \(Etats\-Unis\)
 *One of a Kind*, Los Angeles Institute of Contemporary Art, Los Angeles, Calif\. \(Etats\-Unis\)
 *Art on Paper 1979*, University of North Carolina, Weatherspoon Art Gallery, Greensboro, N\.C\. \(Etats\-Unis\)
 *Images of the Self*, Hampshire College Gallery, Amherst, Mass\. \(Etats\-Unis\)
 
-**1978
-** *Biennale di Venezia*, Venise \(Italie\)
+**1978** 
+*Biennale di Venezia*, Venise \(Italie\)
 
-**1977
-** *Documenta 6*, Cassel \(Allemagne\)
+**1977** 
+*Documenta 6*, Cassel \(Allemagne\)
 
-**1976
-** *Autogeography*, Whitney Museum of American Art, New York \(Etats\-Unis\)
+**1976** 
+*Autogeography*, Whitney Museum of American Art, New York \(Etats\-Unis\)
 *Changing Channels*, Museum of Fine Arts, Boston, Mass\. \(Etats\-Unis\)
  San Francisco Museum of Modern Art, San Francisco, Calif\. \(Etats\-Unis\)
 
@@ -352,8 +352,8 @@ NoticeExpositions personnelles \(sélection\)
  Leo Castelli Gallery, New York \(Etats\-Unis\)
 *Projected Video*, Whitney Museum of American Art, New York \(Etats\-Unis\)
 
-**1974
-** *Project 74*, Kölnischer Kunstverein, Cologne \(Allemagne\)
+**1974** 
+*Project 74*, Kölnischer Kunstverein, Cologne \(Allemagne\)
  Artpark, Lewistown, N\.Y\. \(Etats\-Unis\)
 *Art Now '74*, John F\. Kennedy Center for the Performing Arts, Washington, D\.C\. \(Etats\-Unis\)
 *Projected Images*, Walker Art Center, Minneapolis, Minn\. \(Etats\-Unis\)
@@ -361,15 +361,15 @@ NoticeExpositions personnelles \(sélection\)
  Kitchen, New York \(Etats\-Unis\)
 *Knokke Film Festival*, Knokke\-le\-Zoute \(Belgique\)
 
-**1973
-** *Biennial Exhibition*, Whitney Museum of American Art, New York \(Etats\-Unis\)
+**1973** 
+*Biennial Exhibition*, Whitney Museum of American Art, New York \(Etats\-Unis\)
 *Circuit, A Video Invitational*, Everson Museum of Art, Syracuse, N\.Y\. \(Etats\-Unis\) ; Cranbrook Academy of Art, Bloomfield Hills, Mich\. \(Etats\-Unis\) ; Henry Gallery, University of Washington, Seattle, Wash\. \(Etats\-Unis\) ; Greenville County Museum of Art, Greenville, S\.C\. \(Etats\-Unis\) ; Museum of Fine Arts, Boston, Mass\. \(Etats\-Unis\) ; Kölnischer Kunstverein, Cologne \(Allemagne\)
 *Revision*, Contemporary Arts Museum, Houston, Tex\. \(Etats\-Unis\)
 
-**1972
-** Bykert Gallery, New York \(Etats\-Unis\)
+**1972** 
+Bykert Gallery, New York \(Etats\-Unis\)
 
-**1971
-** *Projected Art II*, Finch College Museum of Art, New York \(Etats\-Unis\)
+**1971** 
+*Projected Art II*, Finch College Museum of Art, New York \(Etats\-Unis\)
  Corcoran Gallery of Art, Washington, D\.C\. \(Etats\-Unis\)
-*Video Performances*, Finch College Museum of Art, New York \(Etats\-Unis\)
+*Video Performances*, Finch College Museum of Art, New York \(Etats\-Unis\)nis\)
