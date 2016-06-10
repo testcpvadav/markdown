@@ -1,7 +1,10 @@
-**Discographie** 
 
-**** 
 
-**1952 \- 1956** 
+paragraphe 1
 
-***Suite*** ***pour piano***\(1952\) – 7’04
+**gras** *italique*
+
+**gras dans paragraphe** *italique dans paragraphe*
+
+***gras italique dans paragraphe***
+
