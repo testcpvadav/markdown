@@ -545,7 +545,7 @@ Un compositeur milite pour la libération de la femme\.
 
 Films Documentaire en deux épisodes :
 
-**\- *Presque rien ou le désir de vivre*** \(1972\-1973\)
+**\- *Presque rien ou le désir de vivre* ** \(1972\-1973\)
 
 *16 mm double\-bande* \(55'\)\.
 
