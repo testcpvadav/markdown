@@ -423,8 +423,7 @@ Pour illustrer le texte et comme exemple de réalisation possible sous forme de 
 *Bande magnétique stéréo*\.  
 Production : Hörspiel S\.W\.F\., Baden\-Baden\.  
 Un auteur qui se raconte à travers des extraits et des mélanges de ses propres musiques, et qui se raconte à travers les bruits qui l'entourent et les gens qui parlent\. Peu à peu, l'auteur oublie son portrait et donne à entendre les bruits du dehors\. \(*en allemand*\)\.  
-*Prix Karl Sczuka 1972\.  
-*1971 \- 1972
+*Prix Karl Sczuka 1972\.*1971 \- 1972
 
 ***Unheimlich Schön*** \(1971\) \- 20'
 
@@ -1711,8 +1710,7 @@ C’est après avoir joué les *Archives sauvées des eaux* avec e*R*ikm, que je
 
 Après ma première expérience qui m’a fait progresser dans un domaine où je n’avais jamais été acteur, les propositions que je fais avec *Les ProtoRythmiques* m’amènent sur un terrain plus aventureux et aussi plus &quot;démocratique&quot; \(si toutefois on peut encore employer ce mot après l’usage qu’en en fait l’administration Busch\)\.
 
-**  
-2005**
+**2005**
 
 ***Didascalies 2*** ou ***Trois personnages en quête de notes*** \(2005\) Durée: env\. 20’
 
