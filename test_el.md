@@ -195,8 +195,8 @@ Musique de film :***Chastel*** \(mai 1962\)
 INA\-GRM
 
 Musique de film :***Égypte ô Égypte II*** \(janvier \- septembre 1962\)  
-*pour un long\-métrage couleur 35 mm  
-*de Jacques Brissot\.  
+*pour un long\-métrage couleur 35 mm*  
+de Jacques Brissot\.  
 INA\-GRM
 
 ***6 pour 4*** \(juin 1962\)
@@ -211,15 +211,15 @@ INA\-GRM
 
 Première version bande de Composé\-Composite
 
-**  
-**
+  
+
 
 **1962 \- 1965**
 
 ***Composé Composite*** \(octobre 1962 \- février 1963\) – 10’
 
-*Pour orchestre et bande magnétique\.  
-*\(2 flûtes, hautbois, clarinette, clarinette basse, basson, contrebasson, 2 cors,  
+*Pour orchestre et bande magnétique\.*  
+\(2 flûtes, hautbois, clarinette, clarinette basse, basson, contrebasson, 2 cors,  
 2 trompettes, trombone, 2 percussions, harpe, 10 violons I, 8 violons II, 8 altos,  
 8 violoncelles, 4 contrebasses\)  
 Version définitive du concert collectif\.  
@@ -240,19 +240,19 @@ CM Paris 1964 par l'EIMCP, Konstantin Simonovic\.
 Editions Transatlantiques
 
 Musique de film :***Portrait d'une autre*** \(octobre \- décembre 1963\)  
-*pour court\-métrage 35 mm couleur  
-*deMarie\-Claire Patris\.  
+*pour court\-métrage 35 mm couleur*  
+deMarie\-Claire Patris\.  
 INA\-GRM
 
 Musique de film :***Dernier Matin*** d'E\.\-A\. Poe \(janvier 1964\)  
-*pour court\-métrage 35 mm noir et blanc  
-*deJean Barral\.  
+*pour court\-métrage 35 mm noir et blanc*  
+deJean Barral\.  
 INA\-GRM
 
 ***Hétérozygote*** \(1963\-64\)*\-* 27'
 
-*Bande magnétique stéréo  
-*Première musique dite &quot;anecdotique&quot;, ou introduction des sons réalistes, comme images concrètes ajoutées aux sons et structures abstraites traditionnelles\. Le public devient actif par le fait qu'il lui est implicitement demandé d'imaginer sa propre anecdote\.  
+*Bande magnétique stéréo*  
+Première musique dite &quot;anecdotique&quot;, ou introduction des sons réalistes, comme images concrètes ajoutées aux sons et structures abstraites traditionnelles\. Le public devient actif par le fait qu'il lui est implicitement demandé d'imaginer sa propre anecdote\.  
 INA\-GRM  
 *Disque Philips 836 885 DSY \(vinyle\)\.  
 CD BVHaast Records Acousmatrix 3 \(1990\)*
@@ -263,8 +263,8 @@ Texte de Pierre Schaeffer\.
 
 Composition de circonstance\.
 
-**  
-** Société I
+  
+Société I
 
 *Pour sept réalisateurs et le public*\(1965\)Durée indéterminée\.  
 Jeu social qui, à partir d'éléments sonores et théâtraux, est destiné à créer un grand désordre au cours duquel on espère que les barrières de la convention seront renversées\. Le but est d'arriver ainsi à la communication qui, partie d'un lieu donné, puisse continuer dans la vie\.  
@@ -313,14 +313,14 @@ Musique de film :***So*** \(1967\)
 
 ***Société II\. Et si le piano était un corps de femme*** \(1967\) \-30' env\.
 
-*pour quatre solistes et seize instruments  
-*\(Flûte, hautbois, clarinette, basson, cor, trompette, trombone, 4 violons, 2 altos,  
+*pour quatre solistes et seize instruments*  
+\(Flûte, hautbois, clarinette, basson, cor, trompette, trombone, 4 violons, 2 altos,  
 2 violoncelles, 1 contrebasse\. Solistes : 1 piano, 3 percussions\.\)  
 CM Paris, 1968\.  
 On peut dire que cette pièce se situe comme théâtre musical dans la mesure où les quatre solistes \(piano et trois percussions\) rivalisent d'intérêt pour le corps du piano qui reste désespérément froid\.  
 On pourrait presque trouver là, si on voulait, mais ce n'est pas sûr, la caricature de l'homme macho\.  
-*Disque Deutsche Grammophon \(vinyle\)\.  
-*Partition : Éditions Moeck\.
+*Disque Deutsche Grammophon \(vinyle\)\.*  
+Partition : Éditions Moeck\.
 
 ***Interrupteur*** *pour dix instruments*\(1967\) \- 20' env\.  
 \(Cor anglais, clarinette, clarinette basse, cor, trompette, violon, alto, violoncelle,
@@ -329,8 +329,8 @@ On pourrait presque trouver là, si on voulait, mais ce n'est pas sûr, la caric
 CM Barcelone, mai 1968\.  
 Le premier essai caractéristique de musique immobile \(bien que l'on trouve déjà cette préoccupation dans*Composé\-Composite* et dans la musique pour*Égypte ô Égypte* \(1962\)\.  
 Cette pièce est un tournant dans mon travail, dans le sens où elle est &quot;presque&quot; débarrassée de la mythologie post\-sérielle\.  
-*Disque EMI C061\-11133 \(vinyle\)\.  
-*Partition : Éditions Moeck\.  
+*Disque EMI C061\-11133 \(vinyle\)\.*  
+Partition : Éditions Moeck\.  
 
 
 Musique de film :***Tinguely*** \(1967\)  
@@ -355,8 +355,8 @@ Partition ambitieuse et sans grand intérêt\. Malgré tout, une mise en cause d
 **1969**
 
 ***Music Promenade*** \(1964\-1969\)  
-*Musique électroacoustique\.  
-*Version bande magnétique stéréo 20'\. Version permanente pour quatre magnétophones indépendants\. Suite de sons réalistes et d'images sonores qui se télescopent\. Un promeneur est heurté par la violence de ce qui l'entoure\.  
+*Musique électroacoustique\.*  
+Version bande magnétique stéréo 20'\. Version permanente pour quatre magnétophones indépendants\. Suite de sons réalistes et d'images sonores qui se télescopent\. Un promeneur est heurté par la violence de ce qui l'entoure\.  
 La nature a disparu dans un tourbillon de militaires et d'industries au milieu duquel on entrevoit un folklore agonisant et une jeune fille perdue\.  
 La version &quot;Installation&quot; permet de sonoriser un lieu dans lequel le promeneurest libre de choisir son itinéraire musical\.  
 *Disque Wergo 50054 \(vinyle\)  
@@ -429,12 +429,12 @@ CD &quot;Presque Rien&quot; INA\-GRM / La Muse en Circuit \- MUSIDISC 245172*
 ***Tautologos 3*** \(1970\) \- 20' env\.
 
 *Réalisation N°4*\.  
-*pour 11 instrumentistes\.  
-*\(Flûte, hautbois, clarinette, trompette, trombone, alto, violoncelle, contrebasse, guitare électrique, orgue électrique, vibraphone\)\.  
+*pour 11 instrumentistes\.*  
+\(Flûte, hautbois, clarinette, trompette, trombone, alto, violoncelle, contrebasse, guitare électrique, orgue électrique, vibraphone\)\.  
 Pour illustrer le texte et comme exemple de réalisation possible sous forme de bande  
 \(N° 3\) ou de partition traditionnelle \(N° 4\)\.  
-*Réalisation N°3 : Disque EMI C 061 11133 \(vinyle\)\.  
-*Partition N° 4 : Éditions Moeck
+*Réalisation N°3 : Disque EMI C 061 11133 \(vinyle\)\.*  
+Partition N° 4 : Éditions Moeck
 
 ***Portrait\-Spiel*** \(1971\) \- 80'
 
@@ -442,8 +442,8 @@ Pour illustrer le texte et comme exemple de réalisation possible sous forme de 
 Production : Hörspiel S\.W\.F\., Baden\-Baden\.  
 Un auteur qui se raconte à travers des extraits et des mélanges de ses propres musiques, et qui se raconte à travers les bruits qui l'entourent et les gens qui parlent\. Peu à peu, l'auteur oublie son portrait et donne à entendre les bruits du dehors\. \(*en allemand*\)\.  
 *Prix Karl Sczuka 1972\.  
-  
-*1971 \- 1972
+*  
+1971 \- 1972
 
 ***Unheimlich Schön*** \(1971\) \- 20'
 
@@ -710,8 +710,8 @@ Production : CNRS Paris\.
 
 Film scientifique sur une expérience de laboratoire\.  
   
-**1977 – 1978  
-**
+**1977 – 1978**   
+
 
 ***Et tournent les sons dans la garrigue\.*** Réflexion sur l'écriture N°1
 
@@ -1003,8 +1003,8 @@ Elles commencent et elles sont déjà finies\. Quelquefois, elles ne commencent 
 
 *CD La Muse en Circuit \- Musidisc 242232*
 
-**  
-**
+  
+
 
 **1985 \- 1987**
 
@@ -1062,8 +1062,8 @@ J'ai donc demandé à Colette Fellous d'embarquer dans ce rêve et de me le raco
 
 *Prix Italia 1987\.\- CD MODE 81\.*
 
-***  
-***
+**  
+**
 
 **1988 \- 1989**
 
@@ -1085,8 +1085,8 @@ Oui, c'est un peu comme ça\. Il y a une romancière qui parle de son roman et c
 
 ***Un Calypso pour Colette*** \(octobre 1987\) \- 4'\.
 
-*Pour deux saxophones, deux pianos, deux percussions  
-*Un Calypso métisse composé par un compositeur blanc qui n'arrive pas à décider entre une mesure à 5 ou à 4 temps\. Mais ça peut se danser\.
+*Pour deux saxophones, deux pianos, deux percussions*  
+Un Calypso métisse composé par un compositeur blanc qui n'arrive pas à décider entre une mesure à 5 ou à 4 temps\. Mais ça peut se danser\.
 
 ***Conversation intime*** \(octobre 1987 \- mars 1988\) \-20'
 
@@ -1396,7 +1396,7 @@ Editions Salabert, Paris
 
 ***Je courais tant de buts divers*** \(Août 1994\)
 
-Texte autobiographique racontant une partie de ma vie qui pourrait représenter lepremier chapitre d'un livre de mémoires si toutefois j'ai le courage de l'écrire\.
+Texte autobiographique racontant une partie de ma vie qui pourrait représenterlepremier chapitre d'un livre de mémoires si toutefois j'ai le courage de l'écrire\.
 
 ***Portrait de Michel Portal*** \(octobre 1994 \- février 1995\) \- 45'
 
@@ -1585,17 +1585,17 @@ Grand Prix 2005 Charles Cros In Memoriam
 
 ***Exploitation des Concepts N° 2***
 
-*Installation son et image pour 6 lecteurs de CD et 4 projecteurs vidéo  
-*Création Paris 2000 par CCMix
+*Installation son et image pour 6 lecteurs de CD et 4 projecteurs vidéo*  
+Création Paris 2000 par CCMix
 
 L'utilisation des souvenirs n'est pas une chose nouvelle pour moi qui suis un récidiviste de l'autobiographie\. Ce qui est différent ici, c'est l'installation du son et de l'image\. De la même manière que je suis un compositeur\-preneur de son, je suis là un compositeur preneur d'image\.
 
 Le cycle des souvenirs signifie aussi que tous les éléments sont architecturés en cycles qui, en se superposant, produisent des rencontres hasardeuses\. C'est pour cela que tout est tournant\.  
 \(Production post\-billig avec l'aire de Césaré et du CCMix\)  
-Version fixée:*Blue Chopsticks USA BC8, distrib\.France: Chronowax – 2002  
-**  
+Version fixée:*Blue Chopsticks USA BC8, distrib\.France: Chronowax – 2002*  
   
-***2000\-2001**   
+  
+**2000\-2001**   
 
 
 ***Archives Génétiquement Modifiées*** \(mai – juillet 2000\) \- 25'
@@ -1636,8 +1636,8 @@ tautologie, donne un aspect totalement neuf au son mémorisé\. Les idées de ta
 
 ***Exploitation des concepts N° 5***
 
-*Pour 15 instruments amplifiés et sons mémorisés  
-*\(flûte, hautbois, clarinette, clarinette basse, basson, trompette, trombone, piano, percussion,  
+*Pour 15 instruments amplifiés et sons mémorisés*  
+\(flûte, hautbois, clarinette, clarinette basse, basson, trompette, trombone, piano, percussion,  
 2 violons, alto, violoncelle, contrebasse\)  
 CM6 avril 2004 Paris, Théâtre Silvia Monfort, Ensemble Ars Nova  
 Ces deux dernières partitions sont en principe destiné à être programmées ensemble\. Les sons mémorisés sont le résultat d’une séance de travail néoimprovisé avec Noël  
@@ -1656,8 +1656,8 @@ Commande deNew Generation, Tokyo
 Ce Sextet est peut\-être la première partition où j’utilise le concept improvisation destinée à l’écriture, qui deviendra dans les travaux suivants l’improvisation utilisée comme plongée dans l’inconscient et l’écriture comme travail de réflexion\.
 
 ***Les Anecdotiques*** \(2001 – 2002\)**–** 54’  
-**Exploitation des Concepts N° 6  
-** Pièce radiophonique pour DeutschlandRadio Berlin
+**Exploitation des Concepts N° 6**   
+Pièce radiophonique pour DeutschlandRadio Berlin
 
 Dans ce hörspiel il y a 15 numéros ou 15 anecdotes qui racontent par ordre chronologique les voyages que j’ai effectués dans cette année\-là\. Depuis Ronda en Espagne jusqu’au Port de la Joliette à Marseille en passant par la Toscane, Chicago, le Texas et la Provence\.
 
@@ -1699,8 +1699,8 @@ Ces 4 Morceaux se situent dans une sorte de décor bien précis où l'écriture 
   
 **2003 – 2005**
 
-**  
-** Les Arythmiques \(mai – novembre 2003\) – 40’20  
+  
+Les Arythmiques \(mai – novembre 2003\) – 40’20  
 Electroacoustique  
 CM17 juin 2005 à La Chaux\-de\-Fonds, Suisse
 
@@ -1729,8 +1729,8 @@ Marcel Duchamp\.
 
 Après, tout a fonctionné, j’ai repéré des mots\-clefs, des sons pivots, des ambiances intrépides, des bruits malins\.
 
-***  
-Après Presque Rien*** \(avril – novembre 2004\) \- 25’  
+**  
+*Après Presque Rien*** \(avril – novembre 2004\) \- 25’  
 Commande du CCMIX \- Paris, de Musiques Nouvelles – Mons, de Art Zoyd – Valenciennes avec le soutien des fonds européens Feder Interreg III  
 *Pour 14 Instruments et 2 Samplers*  
 \(Flûte, Hautbois, Clarinette\., Clar\.basse, Trompette, Saxo ténor, Saxo baryton, Trombone, Piano, Perc, Violon 1, Violon 2, Viola, Violoncelle, C\-basse\)
@@ -1752,8 +1752,8 @@ C’est après avoir joué les*Archives sauvées des eaux* avec e*R*ikm, que je 
 
 Après ma première expérience qui m’a fait progresser dans un domaine où je n’avais jamais été acteur, les propositions que je fais avec*Les ProtoRythmiques* m’amènent sur un terrain plus aventureux et aussi plus &quot;démocratique&quot; \(si toutefois on peut encore employer ce mot après l’usage qu’en en fait l’administration Busch\)\.
 
-**  
   
+**  
 2005**
 
 ***Didascalies 2*** ou***Trois personnages en quête de notes*** \(2005\) Durée: env\. 20’
@@ -1784,4 +1784,4 @@ Archives SM
 
 Destiné à «seven things», Edinburgh
 
-a été inachevé en 2005
+a été inachevé en 2005a été inachevé en 2005
