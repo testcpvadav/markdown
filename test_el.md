@@ -1,637 +1,101 @@
- <!-- p\.MsoNormal \{mso\-style\-parent:""; margin\-bottom:\.0001pt; font\-size:10\.0pt; font\-family:"CG Omega"; margin\-left:0cm; margin\-right:0cm; margin\-top:0cm\} h1 \{margin\-bottom:\.0001pt; page\-break\-after:avoid; font\-size:10\.0pt; font\-family:"CG Omega"; margin\-left:0cm; margin\-right:0cm; margin\-top:0cm\} p\.H5 \{margin:5\.0pt 0cm; page\-break\-after:avoid; layout\-grid\-mode:char; font\-size:10\.0pt; font\-family:"Times New Roman"; font\-weight:bold\} --> 
+Prendre\-place
 
-**Expositions personnelles \(sélection\)**
+ de
 
-**2007\-2008**
+Par Philippe\-Alain Michaud
 
-*Past Imperfect, Works 1986\-2007*, Württembergischer Kunstverein, Stuttgart \(Allemagne\); Staatsgalerie, Stuttgart \(Allemagne\)
+En 1968, le jeune Gerry Schum, à peine sorti de und Fernsehakademie de Berlin, jetait les bases d'une galerie télévisée et entreprenait d'explorer les puissances plastiques d'un médium dans lequel il voyait –à l'époque il n'était pas le seul– l'instrument d'une démocratisation des pratiques artistiques\. Rappelons brièvement les faits: en 1967, Schum tourne un film sur l'artiste Bernhard Höke, qui sera l'un des instigateurs du projet de Fernsehgalerie, intitulé *Schaustücke – Ereignisse* \("Pièces –Événements"\)\. En juin de la même année, il réalise un documentaire pour la télévision sur la sixième biennale de San Marin, *Nuove tecniche d'immagine*, avec Wolf Gremm et Wibke von Bonin\. Dans le film sont présentées des œuvres de Roy Lichtenstein, Victor Vasarely, Bernhard Höke, Michelangelo Pistoletto et Gerhard Richter; le film est un collage d'entretiens \(dont un avec Giulio Carlo Argan\) et de vues du montage de l'exposition\. En septembre 1967 à Francfort, Schum assiste à une exposition collective à laquelle participent nombre d'artistes qui réapparaîtront dans la série *Land Art* et *Identifications* \(Dibbets, Long, Höke, Flanagan…\), exposition qui ne dure qu'une soirée et dans laquelle ne sont exposées que des *ephemera*\(des situations qui mettent en jeu des composants de matière élémentaires – eau, air, sable –, ne laissant aucune trace durable\)\. En 1968, Schum réalise un film sur la reproductibilité de l'œuvre d'art et la question du multiple \(*Konsumkunst – Kunstkonsum*\)\. Le thème du film était le multiple dans l'art\. Sa visualisation prit la forme d'une description du processus de réalisation d'un de ces multiples dans un atelier d'artiste, puis sa présentation dans la galerie sous forme d'objet commercialisable, tandis que l'artiste, l'entrepreneur et le galeriste étaient invités à exprimer leur point de vue\. Dans le film, l'artiste, Heinz Mack, déclarait que ses œuvres n'existeraient que par la télévision et ne seraient diffusées qu'à travers ce médium, avant d'être détruites \[1\]\. *Nuove tecniche* et *Konsumkunst\-Kunstkonsum* seront diffusées sur la chaîne de télévision allemande Westdeutscher Rundfunk, 3\. Programm\. Durant l'été 1968, Schum reçoit une commande de  *Berlin* \(SFB\) et rédige une note d'intention pour un projet de galerie télévisée spécialement conçue pour Berlin\. Ce projet de galerie dématérialisée répondait à la situation économique et politique de la ville, alors isolée au milieu du bloc de l'Est et où il était difficile d'acheminer les œuvres et de rassembler un public\. Dans cette note, il donne quelques indications sur le contenu de l'exposition\. Il mentionne:\- de Constant
 
-**2007** *Klatsassin*, David Zwirner, New York \(Etats\-Unis\)
+En 1956, l'artiste néerlandais Constant Anton Nieuwenhuys \(1920\-2005\) jetait les bases imaginaires d'un nouveau type d'environnement urbain\. Sa Nouvelle\-Babylone est une vision de la ville de l'avenir, une ville planétaire habitée par des nomades libérés des contraintes matérielles\. La ville devait faire écho à cette mobilité nouvelle, sa structure mouvante s'adaptant aux déplacements de ses habitants\. serait une métropole en constante fluctuation\. Elle existerait partout et nulle part à la fois et ne se trouverait ni dans le passé ni dans l'avenir\. Constant commente son projet en ces termes: " ne finit nulle part \(puisque la terre est ronde\); elle ne connaît pas de frontières \(puisqu'il n'y a plus d'économies nationales\), ni de collectivités \(puisque l'humanité est fluctuante\)\. Chaque lieu est accessible à n'importe qui\. La terre tout entière devient la demeure de ceux à qui elle appartient\. La vie est un voyage sans fin à travers un monde qui change si rapidement qu'il semble en permanence différer de lui\-même \[2\]\."
 
-**2006\-2007** *Klatsassin*, Wiener Secession, Vienne \(Autriche\)  
-*Inconsolable Memories*, Studio Museum in Harlem, New York \(Etats\-Unis\)
+\- L'esthétique statistique de Gerhard von Grae\-venitz\. À partir de 1962, au sein du groupe "Nouvelles tendances", Graevenitz explore les propriétés de l'aléa dans l'économie des œuvres, soit en intégrant le hasard à la composition de ses pièces, soit en construisant des pièces cinétiques susceptibles de produire des effets aléatoires\.
 
-**2006**
+\- Des événements d'eau, de feu et d'air de Bernhard Höke \[3\]
 
-*Inconsolable Memories*, Morris and Helen Belkin Art Gallery, Vancouvert, B\.C\. \(Canada\)
+\- Une tour de lumière de Nicolas Schöffer
 
-**2005\-2006**
+En 1971, à propos de Cybernétique \(TLC\), prévue pour le quartier de dans la banlieue parisienne, alors en plein aménagement, et destinée à capter et à refléter l'activité de la ville, Schöffer écrit: "\[…\] une ossature aérée d'une hauteur de et d'une envergure moyenne de est réalisée en tubes d'acier carrés de deux mètres de côté\. Sa forme est asymétrique, rythmée d'une façon spécifique\. À l'intérieur, 14 miroirs courbes sont disposés à différentes hauteurs, plus ou moins éloignés de l'axe central théorique de la sculpture\. D'autre part entre les 200 bras parallèles qui sortent en quatre directions orthogonales, 114axes tournants sont installés sur lesquels 363 miroirs sont fixés\. Les rapports optiques entre les miroirs courbes et les miroirs plans tournants sont conçus de telle façon que ces derniers se reflètent, soit côté convexe, soit côté concave, sur les miroirs courbes, aussi bien en mouvement qu'à l'arrêt, provoquant un grand nombre de rayons réfléchis ou rétroréfléchis, diffusés dans toutes les directions autour de la sculpture\. Enfin, seront disposés 2085 flashes électroniques et 2250 projecteurs ponctuels, certains colorés, et chacun en direction des miroirs plans fixés sur les axes tournants\. 40 projecteurs puissants, en partie au sommet de la tour, projetteront des faisceaux de en prolongeant sa hauteur dans la nuit\. Les faisceaux de 24 lasers se démultiplieront sur les miroirs ainsi que les allumages des projecteurs et les déclenchements des lasers et des flashes sont commandés par ordinateur \[4\]\."
 
-*Stan Douglas, Inconsolable Memories*, Joslyn Art Museum, Omaha, Neb\. \(Etats\-Unis\) ; Morris and HelenBelkin Art Gallery, University of British Columbia, Vancouver, B\.C\. \(Canada\) ;
+Délocalisation \(Constant\), indétermination \(Grae\-venitz\), impermanence \(Höke\), dématérialisation \(Schöffer\) deviennent les propriétés de l'œuvre d'art\. En 1969, Gerry Schum réalise *Land Art* avec Ursula Wevers\. La série est inaugurée avec des artistes européens: Richard Long, Barry Flanagan, Marinus Boezem, Jan Dibbets\. Puis, en février 1969, Schum se rend aux États\-Unis pour rencontrer Dennis Oppenheim, Michael Heizer, Walter De Maria et Robert Smithson\. L'initiative de n'était d'ailleurs pas sans équivalent: à San Francisco, le marchand d'art James Newman développait à la même époque une idée similaire et transformait en décembre1968 sa galerie \(\) en Fondation afin, disait\-il, "de donner davantage de liberté aux artistes, de toucher un public élargi et de faire de l'art une composante organique de la vie quotidienne \[5\]"\. Avec , Newman mettait alors sur pied le projet d'une série de programmes réguliers sous la forme d'une "open\-gallery" dont l'objectif n'était plus de vendre des objets mais de véhiculer des informations\. Il commanda des œuvres à Robert Frank, Ken Dewey, Walter De Maria, Yvonne Rainer, Hann Halprin, Julian Beck et le Living Theatre, Robert Nelson, Frank Zappa, Edwin Schlossberg, Terry Riley et Philip Makanna; les premières pièces furent diffusées durant le printemps et l'été 1969\.
 
-Art Gallery of YorkUniversity, York \(Royaume\-Uni\)
+À l'époque de la création de , aucun des artistes du Land Art ne s'était encore servi du film\. Seul Dibbets avait utilisé la photo pour sa série des perspectives corrigées\. Tous prendront conscience, selon Ursula Wevers, à travers le travail de , du caractère transmissible de leur travail dans sa dimension processuelle même\. Le vernissage eut lieu dans un studio de la chaîne de télévision berlinoise en mars1969\. Quatorze écrans diffusant les performances des artistes étaient encastrés dans des cloisons en bois\. Le vernissage était lui\-même filmé par plusieurs caméras: dans l'émission, qui sera diffusée sur les ondes en avril 1969, une des caméras zoomait, à un certain moment, sur l'un des moniteurs, et, lorsque l'image filmée venait coïncider avec le cadre de l'image télévisée, les images du vernissage laissaient la place à la diffusion du programme dans sa continuité\. L'émission se transformait ainsi en mise en scène du phénomène même du *différé***\.**  L'exposition était accompagnée d'un catalogue dans lequel le nom de "Fernsehgalerie Berlin" était changé en "Fernsehgalerie Gerry Schum"\.
 
-**2004**
+En octobre1969, Schum rencontrait Keith Arnatt à l'occasion de la présentation de "?When Attitudes become form?", à l'Institute of Contemporary Art de Londres et persuadait le directeur des programmes de la chaîne régionale Westdeutscher Rundfunk, Werner Höfer, de convertir en émission la série des *Self\-Burial*, neuf photographies documentant l'auto\-enterrement progressif de l'artiste\. Les images seront diffusées deux par deux entre le 11 et le 18octobre1969 chaque soir à 20h15 et 21h15 pendant 4 secondes sur la WDR, au milieu des programmes, sans annonce ni commentaire\. La seconde image projetée tel jour à 21h15 était reprise le lendemain à 20h15\. Le programme sera racheté par la télévision hollandaise qui le diffusera au mois de novembre suivant\. Toujours en octobre1969, Gerry Schum et Ursula Wevers s'installent avec leur serpent domestique dans un studio mobile, dans lequel désormais ils vivront et travailleront – un studio de télévision transformé en paradis perdu\. Entre Noël de la même année et le Nouvel An, la WDR diffuse chaque soir à la fin des programmes trois minutes de *TV as a Fireplace* réalisé avec Jan Dibbets: un plan fixe d'une cheminée dans laquelle brûle un feu de bois\. Comme la cendre qui, pour les logiciens de Port\-Royal, recouvre la braise en tant que chose et la découvre en tant que signe6, l'image du feu de bois de Dibbets annule le feu et simultanément le remplace par sa simple apparence\. Schum et Dibbets utilisent la télévision moins pour montrer l'image de la chose que sa disparition même –le feu de cheminée remplacé au centre du foyer par la télévision\. Les deux interventions n'étaient pas simplement retransmises, elles utilisaient les propriétés intrinsèques de la diffusion télévisée pour en faire les éléments constitutifs de l'œuvre, la durée dans le cas de Arnatt, le cadre dans celui de Dibbets\. S'il paraît stupéfiant aujourd'hui qu'une chaîne de télévision, fût\-elle régionale, ait pu accepter de diffuser l'auto\-enterrement d'Arnatt et la télé\-cheminée de Dibbets, c'est moins à cause du caractère radical des deux œuvres que parce qu'elles transformaient en expression singulière l'anonymat du discours télévisé obéissant à des idéaux pseudo\-démocratiques selon lesquels le peuple doit reconnaître dans les programmes sa propre voix\. À l'époque où il réalisait *Self\-Burial* et *TV as a Fireplace*, Schum travaillait à un autre concept d'exposition télévisée intitulé *Artscapes*, dans lequel, renversant la problématique de *Land Art*, il s'intéressait moins au paysage qu'à sa disparition: paysage enveloppé \(Christo\), embrumé \(Grubner\), artificiel \(ERG\), mou \(Oldenburg\), noyé dans la mousse \(Höke\)\.
 
-*Stan Douglas, Cuba*, David Zwirner Gallery, New York \(Etats\-Unis\)
+De 1970 à 1972, Schum travaille avec une vingtaine d'artistes européens et américains \(dont Stanley Brouwn, Joseph Beuys, Giovanni Anselmo, Alighiero Boetti, Richard Serra, Mario Merz, Lawrence Weiner, parmi d'autres\) à la réalisation de la série *Identifications* pour la Kunstverein de Hanovre\. Après le relatif échec de la diffusion de la série sur la Sudwestfunk \(Baden\-Baden\), le programme sera à nouveau présenté sous forme fragmentaire par la Hessische Rundfunk: En 1979, Ursula Wevers racontera qu'elle découvrit sur la chaîne avec Gerry Schum les images de Ruthenbeck froissant des papiers et de Rinke renversant un container d'eau intercalées avec des images d'un employé de bureau puis d'un fermier accomplissant les mêmes gestes\. Il ne s'agissait pas simplement de la part des diffuseurs de commenter les œuvres, mais bien de les détruire en les ramenant à des gestes fonctionnels\. Schum et Wevers, découragés, vendirent alors leur équipement cinéma et décidèrent de présenter dans une galerie leurs films, ainsi que ceux réalisés par des artistes\-cinéastes, et de les diffuser en vidéo en éditions limitées\. En 1971, la videogalerie Schum ouvre à Düsseldorf, Ratinger Strasse, 37\. Les bandes\-vidéo étaient diffusées chaque jour dans la galerie sous le titre *Video Action Life Taped*\. La galerie commença par programmer des œuvres de Ulrich Ruckriem et de Klaus Rinke, puis les *Filmmontagen* *I* de Peter Roehr réalisés en 1965 tournés en 16mm et commercialisés sous forme de transfert vidéo\. Seront par la suite présentées des œuvres de Bruce Nauman, Richard Serra, Ed Ruscha, Barry Le Va\.\.\. Selon Ursula Wevers, cette galerie réelle était une impasse: elle marquait l'échec définitif de la Fernsehgalerie\. En novembre1972, Schum travaille, avec Paul Vogt, le directeur du Museum Folkwang à Essen, à un vidéo\-studio constitué par un pool de musées\. En mars1973, Schum se suicide, la galerie cesse de produire des éditions vidéo\. Durant les trois décennies suivantes, la Fernsehgalerie fera l'objet de trois expositions: en 1979\-1980 au Stedelijk Museum d'Amsterdam?; à la Kunsthalle de Düsseldorf en 2003 \("?Ready to Schoot – Fernsehgalerie Gerry Schum?/?Videogalerie Schum?", exposition acompagnée d'un catalogue raisonné\), enfin à l'ARC au couvent des Cordeliers, à Paris en 2005: c'est à peu près tout\.
 
-**2003**
+En 1971, Schum, relançant le débat autour de la relation entre performance et captation, écrivait à Gustav Kemperdick \(le rédacteur de *Spectrum*, le magazine culturel de la WDR\): "?Pour moi, le film est l'œuvre d'art authentique?"\. Comme le montre la réaction contrastée des artistes à l'égard de la série *Land Art* \(satisfaction de Oppenheim et de Boezem?; contrariété de Long qui ne reconnaissait pas sa pièce dans le film et n'acceptait pas qu'elle n'existât qu'à travers celui\-ci\), la question du statut des films et celle de la fonction de Schum en tant que réalisateur \(ou déréalisateur\) dans l'économie des œuvres s'est posée d'emblée\.
 
-*Film Installations and Photograph*s, Kestner Gesellschaft, Hanovre \(Allemagne\)
+Il faut noter, à l'appui de la revendication auteuriste de Schum que *Land Art* est un festival d'effets spéciaux, mais d'effets spéciaux invisibles\. Chacune des pièces repose sur un trucage généralisé des paramètres de temps et d'espace\. À cet égard, Ursula Wevers donne à propos du tournage de *Land Art* des informations précises 7:
 
-*Suspiria*, David Zwirner Gallery, New York \(Etats\-Unis\)
+Le tournage de la pièce de Richard Long, *Walking a Straight 10 Mile Line Forward and Back Shooting Every Half\-Mile*, se déroula en janvier 1969\. Il s'agissait de filmer les dix miles qui mènent à Dartmoor à l'aide de caméras installées tous les demi\-miles\. Le mouvement régulier et rectilinéaire de l'artiste est suivi au zoom en 21 séquences successives, 21 à l'aller et 21 au retour, de six secondes environ chacune, montées en fondu pour produire un effet de mouvement continu\. Sur la bande\-son, on entend les pas et la respiration de Long, qui seront enregistrés le jour suivant\. Un problème technique se posait pourtant: les fondus enchaînés, destinés à rétablir la continuité du déplacement du corps dans le paysage, butaient périodiquement sur le dernier plan d'un segment d'espace, dont la ligne d'horizon ne raccordait pas avec celle du segment suivant\. Il se produisait ainsi une syncope qu'à chaque nouvelle prise il s'agissait de cacher\. Aussi les cinéastes eurent\-ils recours à un trépied muni d'un appareil de mesure capable de corriger la distorsion\.
 
-**2002**
+Filmé sur la côte hollandaise en février, le *Hole in the Sea* de Barry Flanagan a été tourné en contre\-plongée, depuis une échelle de pompier\. Le cylindre de Plexiglas, enfoncé dans le sable au bord de l'eau, n'était pas tout à fait étanche, rendant nécessaire l'ajout d'une pompe invisible\. Par ailleurs, entre chaque prise, il fallait redresser le cylindre déplacé par les vagues\.
 
-Serpentine Gallery, Londres \(Royaume\-Uni\)
+*12 Hours Tide Object With Correction of Perspective* a été réalisé avec la collaboration d'un fermier à qui l'équipe loua un tracteur avec son conducteur\. Celui\-ci traçait des sillons dans le sable aux quatre coins du cadre, qui semblent à l'écran former un rectangle parfait\. Pour la prise de vue, il avait fallu corriger la perspective et donner au rectangle une forme trapézoïdale, les tracés horizontaux du fond \(en haut de l'écran\) devant être redoublés afin de donner la même impression de largeur que les tracés verticaux\.
 
-*Journey into fear*, Zeno X Gallery, Anvers \(Belgique\)
+*Sand Fountain* de Marinus Boezem a été tourné en Camargue\. Sur une dune de sable à l'avant\-plan, un geyser de sable surgit d'un cratère\. Une voix off recense en allemand sur l'échelle de Beaufort numérotée de 1 à 12 les différentes intensités du vent\. Au cours de la prise, un vent latéral se lève qui efface la fontaine de sable jusqu'à ce que la surface originelle soit presque reconstituée\. Pour réaliser cet effet, Ursula Wevers utilisa un aspirateur\.
 
-Helga de Alvear, Madrid \(Espagne\)
+Dans la pièce de Oppenheim, *Timetrack, Following the Timeborder Between Canada and Usa*, le bruit de l'avion survolant la trace laissée par un *ski\-doo* sur la neige à la frontière du Canada et des États\-Unis, à la jonction de deux fuseaux horaires, a été reconstitué et la déformation optique générée par le point de vue surélevé corrigée\.
 
-*Journey Into Fear,* Contemporary Art Gallery, Vancouver, B\.C\. \(Canada\)
+Loin d'être des points de détail, cette collection d'effets spéciaux discrets, de même que le travail subtil des cadrages et des éclairages8 montrent que le film n'est pas le simple enregistrement d'une pièce, mais que, en tant que tel, l'enregistrement devient la forme même que prend sa réalisation\. Dans un texte de 1971, "?Art Through the Camera's Eye?", Robert Smithson notait: "?Les *Land Art* *films* tournés par Gerry Schum de la Fernsehgalerie à Berlin laissent quelque peu insatisfait?; mais ils constituent une tentative pour prendre en charge l'art dans le paysage \[*to deal with art in the landscape*\]\. La télévision a le pouvoir de dilater “les grandes étendues” à l'intérieur de frontières sordides pleines de grisaille et d'électricité statique\. De vastes territoires sont contractés dans des limites imprécises et des sites non\-mesurables\. La “télévision gallery” de Schum fait proliférer les œuvres \[*results*\] de Long, Flanagan, Oppenheim, Beuys, Dibbets, De Maria, Heizer et moi\-même sur des canaux inconnus qui bifurquent vers des terrains mouvants9\.?" Comment décrire ces terrains mouvants vers lesquels bifurquent la Fernsehgalerie de Schum?? Michel Heizer donne peut\-être la réponse lorsqu'en 1970, au cours d'une conversation avec Oppenheim et Smithson publiée dans *Avalanche*, il déclare: "?*The work is not to put in a place, it is that place*10\.?" Ce qui peut se traduire: "?L'œuvre n'est pas dans le lieu, elle est le lieu?" ou plus librement \(ou, si l'on veut, plus conceptuellement\): "?L'œuvre ne prend pas place, elle est le prendre\-place\. " L'énoncé de Heizer rejoignait ainsi la dialectique du *site* et du *nonsite* de Smithson, dont, dans la même conversation, celui\-ci construisait la topique: "?Il y a un point focal central qui est le *non\-site*?; le *site* est la bordure non\-focalisée où la pensée perd ses repères et se trouve submergée par une sensation océanique\. J'aime cette idée de catastrophe tranquille… Ce qui est intéressant avec le *site*, c'est qu'à la différence du *non\-site*, il vous entraîne vers les bords\. Autrement dit, on ne peut se raccrocher à rien sinon à des cendres, il n'y a pas de point particulier sur lequel se concentrer\. On pourrait même dire que le *site* est caché ou s'est perdu\. C'est un plan qui vous conduit quelque part, mais quand vous arrivez là, vous ne savez pas vraiment où vous êtes\. En un sens, le *non\-site* est le centre du système et le *site* lui\-même est la bordure du champ11\. " Le *non\-site* transforme le site en lieu, c'est\-à\-dire en image et l'expérience que l'on en fait est une expérience négative : en le découvrant, le spectateur prend conscience qu'il ne voit pas le site auquel celui\-ci se rapporte12\. Dans les deux séries *Land Art* et *Identifications* \(entièrement tournés en 16mm\), il ne s'agit pas de montrer des œuvres ou des processus, ni même de réaliser des œuvres\-films, mais de créer un nouveau type d'œuvre déceptive en déplaçant le moment de la production vers celui de la diffusion\. Peut\-être l'écran de télévision, dont Smithson évoquait "?les frontières pleines de grisaille et d'électricité statique?", est\-il la forme ultime, entièrement dématérialisée, du *nonsite*\.
 
-*Journey Into Fea*r, Galería Estrany de la Mota, Barcelone \(Espagne\)
+À Gene Youngblood \(l'auteur de *Expanded cinema* qui sera publié en 1970\) Schum écrivait en juin 1969: "?La galerie télé n'existe qu'à travers une série de transmissions télévisuelles, ce qui veut dire que la galerie télé est, plus ou moins, une *institution mentale*, qui ne parvient à l'existence qu'au moment où la télé transmet\. Ce n'est pas un endroit pour montrer de véritables objets d'art que l'on peut acheter et rapporter chez soi\. Une de nos idées est de *communiquer l'art* plutôt que de posséder des objets d'art \[…\]\. D'une manière générale, je considère les expositions télé de la *Fernsehgalerie* comme *un type d'événement artistique autonome* et non comme de la documentation d'un événement artistique qui aurait lieu hors de la télévision13\.?" La télévision n'est donc pas un instrument de transmission des œuvres, mais le lieu même de la réalisation de l'œuvre transformée en objet de communication, ou bien qui occupe le champ de la communication en réduisant celle\-ci à l'insignifiance, et en la neutralisant\. Ce qui ne va pas sans conséquences économiques, puisque la valeur de l'œuvre se trouve déplacée vers le copy\-right\. Il s'agit désormais, pour assurer la viabilité de la galerie, et par suite de la production des œuvres, de vendre des droits de diffusion\. "?Le désenchantement du monde sensible est la réaction de nos sens devant ce qui, objectivement, le détermine en tant que “monde de marchandises”?14", écrivait Adorno en 1947 dans les *Minima Moralia*, qui portent en exergue cette phrase de Ferdinand Kürnberger, "?La vie ne vit pas?" \(ce qui, transposé dans la sphère esthétique, s'énoncerait peut\-être ainsi: "?l'œuvre ne prend pas place?"\)\. Adorno dessinait ainsi le cadre dans lequel l'expérience de la Fernsehgalerie allait se déployer comme le point d'aboutissement d'une interrogation sur le statut et la signification de l'œuvre dans le contexte de l'univers marchand\. La télévision, utilisée comme un médium artistique adressée à un public de masse, apparaît comme l'instrument ultime de la dissolution de l'art à l'ère de la reproductibilité\. Ainsi se désagrège définitivement le concept d'authenticité \(c'est\-à\-dire d'unicité et d'originalité\) qui continue de sous\-tendre l'expérience moderne de l'œuvre d'art15\. L'œuvre désormais n'existe même plus sous forme de copies, elle n'a même plus le statut que Nelson Goodman définit comme allographique16: elle est devenue proprement agraphique\. Les développements situationnistes sur le spectacle sonnent comme une sorte de commentaire de la théorie adornienne du désenchantement\. Guy Debord, en exergue à *La Société du spectacle* dont le premier chapitre \(les propositions 1\-34\) est publié dans l'*Internationale situationniste* en 1967, place cet extrait de la préface à la deuxième édition de *L'Essence du Christianisme* de Feuerbach: "?Et sans doute notre temps… préfère l'image à la chose, la copie à l'original, la représentation à la réalité, l'apparence à l'être \[17…?"
 
-**2001**
+Dans le même numéro de l'*IS* était reproduite une publicité pour une caméra S\.8 Eumig, accompagnée du commentaire suivant: "?Cette publicité \[…\] évoque très justement la glaciation de la vie individuelle qui s'est renversée dans la perspective spectaculaire: le présent se donne à vivre immédiatement *comme souvenir*\. Par cette spatialisation du temps, qui se trouve soumis à l'ordre illusoire d'un présent acces\-sible en permanence, le temps et la vie ont été perdus ensemble18\.?"
 
-*Journey Into Fear,* David Zwirner, New York \(Etats\-Unis\)
+Dans le numéro 12 de l'*IS*, en septembre 1969 parais\-sait l'image d'une femme aux seins nus cadrée par un écran de télévision\. La légende disait qu'il s'agissait d'une image passée en octobre 1967 sur la chaîne protestante de la télévision hollandaise\. Son directeur, un ancien prédicateur, déclara alors: "?Nous voulions montrer que des femmes nues peuvent être très belles\.?" Dans cette image et dans son commentaire, ajoute à son tour le rédacteur, où se manifeste avec une évidence inégalable l'avènement du règne de la séparation, l'inversion spectaculaire de la vie réelle trouve son achèvement réel\. La vie désormais "?échappe à tout usage concret?", à toute appréhension directe: elle se livre "derrière la vitrine d'un spectacle inaccessible qui a pris en charge ''la totalité de l'expérience humaine''?"19\. C'est aussi derrière la vitrine de ce spectacle inaccessible que se déroule la série des *Identifications*: Elle constitue une sorte de manifeste esthétique de la séparation\. Les films ne sont plus réalisés sur des arrière\-plans de paysages, comme la série des *Land Art,* mais dans des espaces encadrés, confinés et indifférenciés – même lorsqu'il s'agit d'extérieurs, ces arrière\-plans fonctionnent comme des toiles peintes, des décors annulés, la trace de la perte de l'unité du monde, tandis que l'intervention de l'artiste se résume à un geste \(répété ou non\), une attitude ou une proposition: un *statement* visuel\. *Identifications* donne à voir le spectacle de l'isolement en acte\. L'œuvre ne prend pas place, elle est le prendre\-place: son élaboration se confond avec la révélation d'un monde solipsiste, la mise à nu du système de la réflexivité\. Et cette mise à nu prend la forme d'une succession de *concetti* visuels, qui, à la manière des peintures de Bruegel mettant en scène des enfants ou des fous, révèlent sous forme énigmatique, le caractère saugrenu de l'existence, la condition de l'homme livré à l'isolement de l'être au monde\.
 
-*Le Detroit*, Kunsthalle Basel, Bâle \(Suisse\)
+Max Dvor?ák a montré comment la peinture de Bruegel offrait une alternative matérialiste à l'héroïsme idéalisant de l'art italien de la Renaissance\. À propos des *Aveugles* \(qu'il oppose au *Jugement dernier* de Michel\-Ange\), il écrit: "?En face de cela, chez Bruegel, un petit épisode pathétique, mais d'une importance quotidienne\. Quelque part, plusieurs pauvres aveugles ont été victimes d'un accident\. Personne n'y fera attention\. C'est à peine si l'un ou l'autre de leurs parents versera une larme sur eux?; la vie dans la nature et la vie des hommes continue   
+imperturbablement, comme si une feuille était tombée de l'arbre\. Mais c'est précisément en cela que réside la nouveauté, qu'un fait aussi insignifiant avec des héros aussi insignifiants soit devenu le centre de la contemplation universelle\. Ce qui semble un hasard, un fait isolé, borné dans le temps et l'espace, sans importance historique, devient l'image du destin, auquel personne ne peut échapper, et auquel l'humanité toute entière est aveuglément soumise \[20\]\.?" C'est ainsi tout l'arrière\-fond stoïcien de la tradition flamande qui ressurgit dans les images de *Identifications*, comme il ressurgit dans les films de Bas Jan Ader: l'événement insignifiant devient l'objet même de la représentation\. Dans les images de John Baldessari malaxant un chapeau, de Ruckriem renversant des blocs de pierre, de Gino De Dominicis essayant d'apprendre à voler, de Reiner Ruthenbeck froissant des feuilles de papier avant de les jeter dans l'espace vide de la pièce ou encore dans celles de Gert van Elk rasant un cactus, on voit émerger un thème moral qui ressortit à l'ironie humaniste de la tradition du Nord, celle de Bruegel ou d'Erasme dans l'*Éloge de la folie*, et que l'on retrouve encore dans la rhétorique situationniste de la *Société du spectacle*: "?Considéré selon ses propres termes, le spectacle est l'*affirmation* de l'apparence et l'affirmation de toute vie humaine, c'est\-à\-dire sociale, comme simple apparence\. Mais la critique qui atteint la vérité du spectacle le découvre comme la *négation* visible de la vie?; comme une négation de la vie qui est *devenue visible*21*\.*?" Et comme dans la peinture de Bruegel où chaque détail présente une cohérence autonome tout en participant à l'économie générale de la composition, peut\-être convient\-il de considérer *Identifications* comme une composition unique dont chaque performance serait un élément\.
 
-*Le Detroit*,Winnipeg Art Gallery, Winnipeg, Man\. \(Canada\)
+Si la conceptualisation de l'art devait trouver dans la transmission télévisée son médium adéquat, radicalement dématérialisé, Schum proposait néanmoins, à travers la Fernsehgalerie, une expérience artistique qui coïncidait avec l'avènement de ce qu'Adorno nommait la culture de l'inauthenticité: il célébrait ainsi, sous une forme moins utopique que désenchantée, la télévision comme le rêve de la société moderne –c'est\-à\-dire le gardien de son sommeil\.
 
-*Le Detroit*, Hamburger Bahnhof, Berlin \(Allemagne\)
+**Épilogue**
 
-**2000**
+Au commencement des années 1960, Claude Laydu, qui avait joué le curé du *Journal d'un curé de campagne* de Robert Bresson, découvrait en Allemagne de l'Est un programme de télévision intitulé *Und jetzt sie müssen schlafen gehen*, injonction à laquelle une petite fille \(la jeune Nina Hagen\), répondait invariablement "?Ja?\!?"\. Du visionnage de cette émission devait naître le projet d'une série mettant en scène un spectacle de marionnettes d'abord intitulé *Gros nounours*, qui allait devenir *Bonne nuit les petits*\. Dans cette série, dont le prologue se déroulait sur fond d'une barre de HLM de Montrouge \(dont je parierais qu'ils seront encore ceux des *Grands ensembles* de Pierre Huyghe en 2001\), le sommeil ne naissait plus de l'obscurité silencieuse de la chambre à coucher, mais venait de l'extérieur, portée par les ondes\. Tout comme l'œuvre d'art dans la Fernsehgalerie ne naissait plus dans la confidentialité de l'atelier, mais advenait par le canal de la télévision, sous forme dématérialisée\. *Bonne nuit les petits* devait connaître un succès considérable: les derniers épisodes seront tournés en 1969, au moment où Schum commençait à travailler à *Identifications*\. La série sera rediffusée jusqu'en 1973, date à laquelle elle sera définitivement abandonnée \(1973, c'est aussi l'année du suicide de Schum\) et le créneau de 19h30 abandonné à la publicité\.
 
-*Le Detroit*, Art Institute of Chicago, Chicago, Ill\. \(Etats\-Unis\)
+1\. Voir Barbara Hess "?Abendschau\. Drei film über Kunst?", dans Ulrike Gross, Barbara Hess, Ursula Wevers \(dirs\), *Ready to Shoot\. Fernsehgalerie Gerry Schum**?**/**?**Videogalerie Schum*, cat\. d'expo, Düsseldorf?/?Cologne, Kunsthalle Düsseldorf?/?Snoeck, 2003, p19\-21\.
 
-**1999**
+2\. Constant "?New Babylon, een schets voor een Kultuur?" \(1960\-1965\), reproduit et traduit en anglais par P\. Hammond dans Mark Wigley, *Constant's New Babylon\. The Hyper\-Architecture of Desire*, Rotterdam, Witte de With, center of contemporary art / 010 Publishers, 1998, p\.161 \(notre traduction, comme toutes les fois où il n'est pas fait mention de traducteur\)\.
 
-Vancouver Art Gallery, Vancouver, B\.C\. \(Canada\); Edmonton Art Gallery, Edmonton, Alta\. \(Canada\) ; Power Plant, Toronto, Ont\. \(Canada\) ; De Pont Museum, Tilburg \(Pays\-Bas\) ; Museum of Contemporary Art, Los Angeles, Calif\. \(Etats\-Unis\)
+3\. Voir Bernhard Höke, *Notizen zu Ereignissen und Schaustücken\. Mit einem Anhang aus dem Elementarbuch Feuer, Luft, Wasser, Erde*, Berlin, Edition Et / Verlag Christian Grützmacher, 1966\.
 
-*Pursuit, Fear, Catastrophe: Ruskin, B\.C\.*,Fondation Cartier pour l’art contemporain, Paris \(France\)
+4\. Nicolas Schöffer, *L'Informatique*, décembre 1971, p\.39, cité par Éric Mangion, "?Des cloisons invisibles???", *Nicolas Schöffer*, Dijon, Les Presses du réel, 2004, p\.20\.
 
-*Le Detroit*, Art Gallery of Windsor, Windsor, Ont\. \(Canada\)
+5\. Gene Youngblood, *Expanded cinema*, New York, Duton, 1970, p\.292?; voir Charles Harrison, "?Art on TV?", *Studio International*, janvier 1971\.
 
-**1998**
+6\. "?Car la même chose pouvant être en même temps et chose et signe, peut cacher comme chose ce qu'elle découvre comme signe\. Ainsi la cendre cache le feu comme chose et le découvre comme signe?" \(Antoine Arnauld et Pierre Nicole, *La Logique ou l'Art de penser*, I, 4, Paris, Guillaume Desprez, 1683, p\.57\)\.
 
-Salzburger Kunstverein, Salzburg \(Autriche\)
+7\. U\. Wevers, "?Liebe Arbeit Fernsehgalerie?", dans U\.Gross, B\.Hess, U\.Wevers \(dirs\), *Ready to Shoot\.* *Fernsehgalerie Gerry Schum**?**/ Videogalerie Schum*, *op\.cit\.*, p\.26 *sq*\.
 
-*Detroit Photos,* David Zwirner Gallery, New York \(Etats\-Unis\)
+8\. Dans la pièce de Reiner Ruthenbeck par exemple, tandis que l'artiste assis à droite du cadre devant une rame de papier froisse les feuilles les unes après les autres et les jette devant lui sur le sol, une succession de légers zooms avant, en resserrant le cadre, souligne l'envahissement du champ par les boules de papier qui s'amoncèlent au sol aléatoirement\.
 
-**1997**
+9\. Robert Smithson, *The Collected Writings*, Jack Flam \(ed\.\), Berkeley, University of California Press, 1996, p\.374\.
 
-*Der Sandman*n, Freedman Gallery, Albright Center for the Arts, Reading, Pa; \(Etats\-Unis\)
+10\. *Ibid\.*, p\.242\.
 
-*Evenin*g, Museum of Contemporary Art, Chicago, Ill\. \(Etats\-Unis\)
+11\. *Ibid\.*, p\.176\.
 
-*Photograph*y, Centre genevois de gravure contemporaine, Genève \(Suisse\)
+12\. Robert Hobbs, Robert Smithson, *Sculpture*, Ithaca, Cornell University Press, 1981, p\.14 et Gary Shapiro, *Earthwards\. Robert Smithson and Art After Babel*, Berkeley, University of California Press, 1995, p\.69 *sq*\.
 
-*Overture y Monodrama*s, Museo Alejandro Otero, Caracas \(Venezuela\)
+13\. G\. Schum, "?Brief von Gerry Schum an Gene Youngblood, 29\.6\.1969?", dans U\.Gross, B\.Hess, U\.Wevers \(dirs\), *Ready to Shoot\.* *Fernsehgalerie Gerry Schum**?**/ Videogalerie Schum*, *op\.cit\.*, p\.119\-121\.
 
-**1996**
+14\. Theodor W\. Adorno, *Minima Moralia\. Réflexions sur la vie mutilée* \[1944\-1947\], trad\. de l'allemand par É\. Kaufholz et J\.\-R\. Ladmiral, Paris, Petite bibliothèque Payot, 2008, p\.305\.
 
-Musée d'art contemporain, Montréal, Québec \(Canada\)
+15\. Stefan Germer, "?Das Jahrhun\-dert\-ding\. Ansätze zu einer theorie und Geschichte des Multiples?", Zdenek Felix \(dir\.\), *Jahrhundert des Multiple\. Von Duchamp bis zur Gegenwart*, cat\.d'expo\., Hambourg, Deichtorhallen, 1994, p\.17\-73 et 33 *sq* en particulier\.
 
-Museum Haus Lange &amp; Museum Haus Esters, Krefeld \(Allemagne\)
+16\. Est allographique tout art qui porte en lui une certaine forme d'immatérialité, qui reste indifférent   
+à son support, comme la musique ou la littérature?; voir Nelson Goodman, *Languages of Art* \[1976\], Indianapolis, Hackett Publishing Company, 1976, p\.113; trad\. française par J\.Morizot, *Langages de l'art de l'art\. Une approche de la théorie des symboles*, Nîmes, Jacqueline Chambon, 1990, Paris, Hachette Littérature, 2005\.
 
-*Nootka Sound Photograph*s, Zeno X Gallery, Anvers \(Belgique\)
+17\. Feuerbach, *L'Essence du Christianisme*, préface à la deuxième édition, cité par Guy Debord, *La Société du Spectacle* \[1967\], Paris, Gallimard, coll\. "?Folio?", 1997 \(3e éd\.\), p\.13\.
 
-*Two Early Work*s, David Zwirner Gallery, New York \(Etats\-Unis\)
+18\. *Internationale situationniste*, no11, octobre 1967, p\.57, reproduit dans *Internationale situationniste*, éd\. augmentée, Paris, Librairie Arthème Fayard, 1997, p\.553\.
 
-**1995**
+19\. *Internationale situationniste*, no12, septembre 1969, p\.50, reproduit dans *Internationale situationniste*, *op\.cit\.*, p\.618\.
 
-*Overture and Marnie,* David Zwirner Gallery, New York \(Etats\-Unis\)
+20\. Max Dvor?ák, *Pierre Bruegel l'Ancien*, trad\. du tchèque par P\. Klaruill, St Pierre de Salerne, Montfort, 1992, p\.58\.
 
-*Monodramas,* Neuer Aachener Kunstverein, Aix\-la\-Chapelle \(Allemagne\)
+21\. G\. Debord, *La Société du Spectacle*, *op\.cit\.*, p\.19 \(§ 10\)\.
 
-Marstall, DAAD, Berlin \(Allemagne\)
-
-*Evening and Hors\-champ*s, Renaissance Society at the University of Chicago, Chicago, Ill\. \(Etats\-Unis\)
-
-*Pursuit, Fear, Catastrophe : Ruskin B\.*C\., Walter Phillips Gallery, Banff, Alta\. \(Canada\)
-
-**1994\-1995**
-
-Musée national d'art moderne, Centre Georges Pompidou, Paris \(France\); Museo nacional Centro de arte Reina Sofía, Madrid \(Espagne\) ; Kunsthalle Zürich, Zurich \(Suisse\), Witte de With, Rotterdam \(Pays\-Bas\); Marstall, DAAD, Berlin \(Allemagne\)
-
-**1994**
-
-*Currents 24, Pursuit, Fear, Catastrophe, Ruskin B\.C*\., Milwaukee Art Museum, Milwaukee, Wis\. \(Etats\-Unis\)
-
-*Hors\-champs,* Contemporary Art Museum, Houston, Tex\. \(Etats\-Unis\)
-
-Witte De With, Centre for Contemporary Art, Rotterdam \(Pays\-Bas\)
-
-Institute of Contemporary Art, Londres \(Royaume\-Uni\); Viewpoint Photography Gallery, Salford \(Royaume\-Uni\)
-
-*Hors\-champs\-Matrix 123,* Wadsworth Atheneum, Hartford, Conn\. \(Etats\-Unis\)
-
-Macdonald Stewart Art Centre and York University, Guelph and Toronto, Ont\. \(Canada\)
-
-**1993**
-
-*Monodramas*, Galerie Christian Nagel, Cologne \(Allemagne\)
-
-*Hors\-Champs*, Transmission Gallery, Glasgow \(Royaume\-Uni\)
-
-*Hors\-Champs*, World Wide Video Centre, La Haye \(Pays\-Bas\)
-
-*Hors\-Champs*, David Zwirner Gallery, New York \(Etats\-Unis\)
-
-**1992**
-
-*Monodramas*, Art Metropole, Toronto, Ont\. \(Canada\)
-
-*Monodramas and Loops*, Fine Arts Gallery, University of British Columbia, Vancouver, B\.C\. \(Canada\)
-
-**1991**
-
-*Monodramas*, Galerie nationale du Jeu de Paume, Paris \(France\)
-
-*Trois installations cinématographiques*, Services culturels, Ambassade du Canada, Paris \(France\)
-
-**1989**
-
-*Television Spots\-Subject to a Film, ‘Marnie’*, YYZ Gallery, Toronto, Ont\. \(Canada\)
-
-**1988**
-
-*Television Spots\-Subject to a Film, ‘Marnie’*, Contemporary Art Gallery, Vancouver, B\.C\. \(Canada\)
-
-*Overture, Television Spots*, Optica, un centre d'art contemporain, Montréal, Québec \(Canada\)
-
-*Television Spots \(first six\)*, Artspeak Gallery, Vancouver, B\.C\. \(Canada\)
-
-**1987**
-
-*Perspective '87*, Art Gallery of Ontario, Toronto, Ont\. \(Canada\)
-
-**1986**
-
-*Onomatopoeia*, Western Front, Vancouver, B\.C\. \(Canada\)
-
-**1985**
-
-*Panoramic Rotunda*, Or Gallery, Vancouver, B\.C\. \(Canada\)
-
-*Monodramas*, Neueraachenerkunstverein, Aix\-La\-Chapelle \(Allemagne\)
-
-**1983**
-
-*Slideworks*, Ridge Theatre, Vancouver, B\.C\. \(Canada\)
-
-**1981**
-
-*Two Hangers at the Jericho Beach Air Statio*n, Jericho Beach, Vancouver, B\.C\. \(Canada\)
-
-**Expositions collectives \(sélection\)**
-
-**2008** *Re\-enactments*, DHC\-Art, Foundation for Contemporary Art, Montréal, Québec \(Canada\)
-
-*The Cinema Effect, Illusion, Realty and the Moving Image, Part 1: Dreams*, Hirshhorn Museum and sculpture Garden, Washington, D\.C\. \(Etats\-Unis\)  
-  
-**2007\-2008**   
-*Colecção Centre Pompidou no Museu do Chiado, Centre Pompidou Novos Media 1965\-2003*, Museu nacional de arte contemporânea, Museu do Chiado, Lisbonne \(Portugal\)  
-
-
-2007  
-*Samuel Beckett*, Musée national d’art moderne\-Centre de creation industrielle, Centre Pompidou, Paris \(France\)  
-*Projections*, Blackwood Gallery ; Doris McCarthy Gallery ; Justina M\. Barnicke Gallery, University of Toronto Art Centre, Toronto, Ont\. \(Canada\)
-
-**2006\-2007** *ANOS 80, uma topologia*, Museu de arte contemporãnea de Serralves, Porto \(Portugal\)
-
-*Stan Douglas, Judith Hopf, Midori Mitamura*, Wiener Secession, Vienne \(Autriche\)
-
-*The New Media Collection 1965\-2005*, Museum of Contemporary Art, Sydney \(Australie\)  
-
-
-**2006** *25 years*, Zeno X Gallery, Anvers \(Belgique\)
-
-*Video, An Art, a History, 1965\-2005, New Media Collection, Centre Pompidou*, Miami Art Central, Miami, Fla\. \(Etats\-Unis\)  
-*New Media Collection, 1965\-2005, Centre Pompidou*, Taipei Fine Arts Museum, Taipei \(Taiwan\)  
-*Artforum Berlin 2006*, Artforum, Berlin \(Allemagne\)
-
-**2005\-2006**
-
-*Temps de vídeo 1965\-2005, Col\.lecció Nouveaux Medias del Centre Pompidou amb la participació de la col\.lecció d’art contemporani Fundació ‘La Caixa’*, Fundació La Caixa, Barcelone \(Espagne\)
-
-*Intertidal, Vancouver Art &amp; Artists*, MUHKA, Museum van Hedendaagse Kunst , Anvers \(Belgique\)
-
-*The Ella Fontanals Cisneros Collection*, Cisneros Fontanals Art Foundation, Miami, Fla\. \(Etats\-Unis\)
-
-**2005**
-
-*Biennale di Venezia*, Venise \(Italie\)
-
-**2004**
-
-*Videodreams*, Kunsthaus am Landesmuseum Joanneum, Graz \(Autriche\)
-
-*Eblouissement*, Galerie nationale du Jeu de Paume, Paris \(France\)
-
-**2003\-2004**
-
-*Baja to Vancouver, West Coast and Contemporary Art*, Seattle Art Museum, Seattle, Wash\. \(Etats\-Unis\); Museum of Contemporary Art, San Diego, Calif\. \(Etats\-Unis\); Vancouver Art Gallery, Vancouver, B\.C\. ; CCA Wattis Institute, San Francisco, Calif\. \(Etats\-Unis\)
-
-*Mouvements de fonds, acquisitions 2002 du Fonds national d’art contemporain*, Musée d’art contemporain, Marseille \(France\)
-
-**2003**
-
-*Urban Incidenc*e, Beaumontpublic \+ Königbloc, Luxembourg \(Luxembourg\)
-
-*Media Works from the Goetz Collection*,ZKM, Karlsruhe \(Allemagne\)
-
-*Imperfect Innocence, The Debra and Dennis Scholl Collectio*n, Contemporary Museum, Baltimore, Md\. \(Etats\-Unis\); Palm Beach Institute of Contemporary Art, Palm Beach, Fla\. \(Etats\-Unis\)
-
-*Soundtrack*s, Edmonton Art Gallery, Edmonton, Alta\. \(Canada\)
-
-*Moving Pictures,* Guggenheim Museum, Bilbao \(Espagne\)
-
-*Il Passato Non Esist*e, Aurora, Rovereto \(Italie\); Museum of Contemporary Art, San Diego ; Vancouver Art Gallery, Vancouver, B\.C\. \(Canada\) ; CCA Wattis Institute, San Francisco, Calif\. \(Etats\-Unis\)
-
-*MosaiCanada, Sign and Sound*, Seoul Museum of Art, Séoul \(Corée\)
-
-**2002**
-
-*Documenta 11*, Cassel \(Allemagne\)
-
-*Hollywood Revisited*, Aarhus Kunstmuseum, Aarhus \(Danemark\)
-
-*Pictures*, Green Naftali Gallery, New York \(Etats\-Unis\)
-
-*São Paulo Biennal*e, São Paulo \(Brésil\)
-
-*Regarding Landscap*e, Art Gallery of York University, Toronto, Ont\. \(Canada\)
-
-*The House of Fictio*n, Sammlung Hauser und Wirth in der Lokremise Saint\-Gall \(Suisse\)
-
-*The Big Sho*w, New International Cultural Center, Anvers \(Belgique\)
-
-*Moving Picture*s, Solomon R\. Guggenheim Museum, New York \(Etats\-Unis\)
-
-Musée d'art moderne, Villeneuve d’Ascq \(France\)
-
-*Public Affair*s, Kusthaus Zürich, Zurich \(Suisse\)
-
-**2001**
-
-*I &lt;love&gt; NY*,David Zwirner Gallery, New York \(Etats\-Unis\)
-
-*Moving Pictures, 5thInternational Foto\-Triennale Esslingen 2001,* Galerie Villa Merkel, Esslingen am Neckar \(Allemagne\)
-
-*Recasting the Past, Beneath the Hollywood Tinsel,* Cal State University Fullerton Main Art Gallery, Fullerton, Calif\. \(Etats\-Unis\)
-
-*La Biennale di Venezi*a, Venise \(Italie\)
-
-*7th International Istanbul Biennia*l, Istanbul \(Turquie\)
-
-*Sammlung Hauser and Wirth\-Part 2\-Alternating Current,* Sammlung Hauser and Wirth, Saint\-Gall \(Suisse\)
-
-*Contemporary Utopia,* Latvian Center for Contemporary Art, Riga \(Lettonie\)
-
-Robert Wood Johnson Gallery, Metropolitan Museum of Art, New York \(Etats\-Unis\)
-
-*The Big Sho*w, New International Cultural Center, Anvers \(Belgique\)
-
-*En Pleine Terre,* Museum fur Gegenwartskunst, Bâle \(Suisse\)
-
-*Action, On Tourne = Action, We’re Filming*,Villa Arson, Centre national d’art contemporain, Nice \(France\)
-
-**2000**
-
-*Between Cinema and a Hard Plac*e, Tate Modern, Londres \(Royaume\-Uni\)
-
-*Enclosed and Enchanted*,Museum of Modern Art, Oxford \(Royaume\-Uni\)
-
-*Shifting Sites, Le Detroit*,Canadian Museum of Contemporary Photography, Ottawa, Ont\. \(Canada\)
-
-*Let’s Entertai*n, Walker Art Center, Minneapolis, Minn\. \(Etats\-Unis\); Musée national d’art moderne, Centre Georges Pompidou, Paris \(France\); Miami Art Museum, Miami, Fla\.
-
-*Making Time, Considering Time as a Material in Contemporary Video and Film,* Palm Beach
-
-Institute of Contemporary Art, Lake Worth, Fla\. \(Etats\-Unis\)
-
-*Thinking Space\. Selections from the Ann &amp; Marshall Webb Collectio*n, Art Gallery of Hamilton, Hamilton, Ont\. \(Canada\)
-
-*Insistent Memories,* Harn Museum, University of Florida, Gainesville, Fla\. \(Etats\-Unis\)
-
-*Foto Biennale Rotterdam, Rotterdam Pays\-Bas\)*
-
-*Sammlung \(1\), The Oldest Possible Memor*y, Sammlung Hauser &amp; Wirth, Saint\-Gall \(Suisse\)
-
-*12th Biennial of Sydney*, Sydney \(Australie\)
-
-*Gestus,* Musée des beaux\-arts, Montréal, Québec \(Canada\)
-
-*Media City Seoul 2000,* Séoul \(Corée\)
-
-**1999**
-
-*Double Vision, Stan Douglas and Douglas Gordon*, DIA Center for the Arts, New York \(Etats\-Unis\)
-
-*Rewind to the Future*, Bonner Kunstverein, Bonn \(Allemagne\)
-
-*The Modernist Document*, Leonard &amp; Bina Ellen Art Gallery, Concordia University, Montréal, Québec \(Canada\)
-
-*Artist Once\-Removed,* Künstlerhaus Stuttgart \(Allemagne\)
-
-*Liverpool Biennial of Contemporary Art*,Liverpool \(Royaume\-Uni\)
-
-*Moving Images, Film\-Reflection in Art,* Stedelijk Museum voor Actuele Kunst, Gand \(Belgique\)
-
-*Gallery Artists Summer Sho*w, David Zwirner Gallery, New York \(Etats\-Unis\)
-
-*Sharawadgi,* Felsenvilla, Vienne \(Autriche\)
-
-*Flashes*, Centro Cultural de Belém, Lisbonne \(Portugal\)
-
-*So Faraway, So Close*,Encore Gallery, Bruxelles \(Belgique\)
-
-*Notorious, Alfred Hitchcock and Contemporary Art*,Museum of Modern Art, Oxford \(Royaume\-Uni\); MCA, Sydney \(Australie\) ; Art Gallery of Hamilton, Hamilton, Ont\. \(Canada\) ; Kunsthalle Brandts Klaedefabrik, Odense \(Danemark\) ; Centro cultural, Fundació La Caixa, Lleida \(Espagne\); Centro cultural, Fundació La Caixa, Tarragona \(Espagne\) ; Hiroshima City Museum of Contemporary Art; Tokyo Opera City Art Gallery, Tokyo \(Japon\) ; Artsonje Center, Séoul \(Corée\)
-
-*Views from the Edge of the World*, Marlborough Gallery, New York \(Etats\-Unis\)
-
-*Ecstatic Memor*y, Art Gallery of Ontario, Toronto, Ont\. \(Canada\)
-
-*Stories of the Momen*t, Stadtische Galerie im Lenbachhaus, Munich \(Allemagne\)
-
-*Searchlight, Consciousness at the Milleniu*m, California College of Arts and Crafts, Oakland, Calif\. \(Etats\-Unis\)
-
-*Seeing* Time, Selections *from the Pamela and Richard Kramlich Collection of Media Art,* San Francisco Museum of Modern Art, San Francisco, Calif\. \(Etats\-Unis\); ZKM, Zentrum für Kunstund Medientechnologie, Karlsruhe \(Allemagne\)
-
-*Umwelt\-Umweld,* Palais des beaux\-arts, Bruxelles \(Belgique\)
-
-**1998\-1999**
-
-*Crossing*s, Kunsthalle Wien, Vienne \(Autriche\); Rudolfinum, Prague \(République Tchèque\)
-
-**1998**
-
-*Auf der Spu*r, Kunsthalle Zürich, Zurich \(Suisse\)
-
-*Play Mode*,Art Gallery, University of California, Irvine, Calif\. \(Etats\-Unis\); Jean Paul Slusser
-
-Gallery, University of Michigan, Ann Arbor, Mich\. \(Etats\-Unis\)
-
-*Stretc*h, Tensta Konsthalle, Stockholm \(Suède\)
-
-*Images Festival of Independent Film and Video,* Toronto, Ont\. \(Canada\)
-
-*Ghost Stor*y, Künstlerhaus Wien, Vienne \(Autriche\)
-
-*Reservate der Sehnsuch*t, Hartware Projekte, Dortmund \(Allemagne\)
-
-Herzliya Museum of Art, Herzliya \(Israël\)
-
-*Berlin Biennal*e, Berlin \(Allemagne\)
-
-*Altered States Festiva*l, Utrecht \(Pays\-Bas\)
-
-*Stan Douglas, Carl de Keyzer, Maria Serebriakova, Luc Tuymans, Noritoshi Hirakaw*a, Zeno X Gallery, Anvers \(Belgique\)
-
-*Wounds, Between democracy and redemption in contemporary ar*t, Moderna Museet, Stockholm \(Suède\)
-
-*Voice Over, Sound and Vision in Current Art*,Arnolfini Gallery, Bristol ; Hatton Gallery, Newcastle ; John Hansard Gallery, Southampton ; Cornerhouse Gallery, Manchester ; Castle Museum, Nottingham ; Royal Botanic Garden, Edinburgh \(Royaume\-Uni\)
-
-*Five Years, 1993\-1998,* David Zwirner, New York \(Etats\-Unis\)
-
-**1997**
-
-*Trade Routes, History and Geograph*y, Johannesburg Biennale, Institute of Contemporary
-
-Art, Johannesburg \(Afrique du Sud\)
-
-*Longing and Memory*, Los Angeles County Museum of Art, Los Angeles, Calif\. \(Etats\-Unis\)
-
-*Documenta 10*, Cassel \(Allemagne\)
-
-*Skulptur, Projekte in Münste*r, Munster \(Allemagne\)
-
-*4e Biennale de Lyon*, Lyon \(France\)
-
-*5th International Biennale in Nagoya\-Artec '9*7, Nagoya \(Japon\)
-
-*Twenty Years\.\.\.almos*t, Robert Miller Gallery, New York \(Etats\-Unis\)
-
-*Between Lantern and Laser: Video Projection*s, Henry Art Gallery, Seattle, Wash\. \(Etats\-Unis\)
-
-*Public Service and Other Announcement*s, Philadelphia Museum of Art, Philadelphia, Pa\. \(Etats\-Unis\)
-
-*Sharon Lockhardt, Stan Douglas, Hiroshi Sugimot*o, Museum Boymans Van Beuningen, Rotterdam \(Pays\-Bas\)
-
-*MUUten anniversary exhibitio*n, Museum of Photography, Helsinki \(Finlande\)
-
-*'97 Kwangju Biennal*e, Kwangju \(Corée\)
-
-*Inaugural Exhibition,* Museo Guggenheim, Bilbao \(Espagne\)
-
-*Timeframe*s, Freedman Gallery, Albright Center for the Arts, Reading, Pa\. \(Etats\-Unis\)
-
-**1996\-1997**
-
-*Art and Film Since 1945, Hall of Mirrors,* Museum of Contemporary Art, Los Angeles, Calif\. \(Etats\-Unis\); Wexner Center for the Arts, Columbus, Ohio \(Etats\-Unis\) ; Palazzo delle Esposizioni, Rome \(Italie\) ; Museum of Contemporary Art, Chicago, Ill\. \(Etats\-Unis\)
-
-*Everything that's interesting is New,* Deste Foundation, Athènes \(Grèce\); Solomon R\. Guggenheim Museum, New York \(Etats\-Unis\); Museum of Modern Art, Copenhague \(Danemark\)
-
-**1996**
-
-Statens Museum for Kunst, Copenhague \(Danemark\)
-
-*100 Photograph*s, American Fine Arts, New York \(Etats\-Unis\)
-
-*Hugo Boss Priz*e, Solomon R\. Guggenheim Museum, New York \(Etats\-Unis\)
-
-*The Red Gat*e, Museum van Hedendaagse Kunst, Gand \(Belgique\)
-
-*Art in the age of Post\-colonialism and Global Migratio*n, Steirischer Herbst 96, Graz \(Autriche\)
-
-*Ideal Standard Lif*e, Spiral Garden, Tokyo \(Japon\) ; Gallery Seomi, Séoul \(Corée\)
-
-*NowHere*,Louisiana Museum of Modern Art, Humblebaek \(Danemark\)
-
-*Sydney Biennal*e, Sydney \(Australie\)
-
-*Real Fictions, Four Canadian Artists,* MOCA, Sydney \(Australie\)
-
-*Antartica Artes com a Folha,* Museum of Image and Sound, São Paulo \(Brésil\)
-
-*Defining the Nineties, Consensus\-making in New York, Miami, and Los Angeles, Museum of*
-
-Contemporary Art, Miami, Fla\. \(Etats\-Unis\)
-
-*Instants photographiques et oeuvres choisies de la Collection, Couvent des Cordeliers, Paris \(France\)*
-
-*Nach Weima*r, Kunstsammlungen zu Weimar, Weimar \(Allemagne\)
-
-*Un\-frieden\. Sabotage von Wirklichkeite*n, Kunstverein und Kunsthaus in Hamburg, Hambourg \(Allemagne\)
-
-*The Culture of Natur*e, Kamloops Art Gallery, Kamloops, B\.C\. \(Canada\)
-
-*Shifting Shapes: Reading the Shadow*s, Bard College, Annandale\-on\-Hudson, N\.Y\. \(Etats\-Unis\)
-
-*Rough Bus*h, Or Gallery, Vancouver, B\.C\. \(Canada\)
-
-**1995\-1996**
-
-*Carnegie International,* Carnegie Museum of Art, Pittsburgh, Pa\. \(Etats\-Unis\)
-
-**1995**
-
-*Whitney Biennial,* Whitney Museum of Modern Art, New York \(Etats\-Unis\)
-
-*Video Spaces,* Museum of Modern Art, New York \(Etats\-Unis\)
-
-*Public Information : Desire, Disaster, Document,* Museum of Modern Art, San Francisco, Calif\. \(Etats\-Unis\)
-
-Museum of Contemporary Art, Los Angeles, Calif\. \(Etats\-Unis\)
-
-*Trust,* Tramway, Glasgow \(Royaume\-Uni\)
-
-Raum Aktueller Kunst, Vienne \(Autriche\)
-
-Canadian Museum of Contemporary Photography, Ottawa, Ont\. \(Canada\)
-
-*Spirits on the Crossing*, Setagaya Art Museum, Tokyo \(Japon\); Hokkaido Museum of Modern Art, Sapporo \(Japon\); National Museum of Modern Art, Kyoto \(Japon\)
-
-*3e Biennale d'art Contemporain de Lyo*n, Palais de Congrès, Lyon \(France\)
-
-*1995 Carnegie Internationa*l, Carnegie Museum of Art, Pittsburgh, Pa\. \(Etats\-Unis\)
-
-*Le Monde après la Photographie, Musée d'Art Moderne, Villeneuve d'Ascq, Communauté*
-
-Urbaine de Lille \(France\); Villa Arson, Nice \(France\)
-
-*A Notion of Conflict, A Selection of Contemporary Canadian Ar*t, Stedelijk Museum, Amsterdam \(Pays\-Bas\)
-
-*L'Effet cinéma,* Musée d'Art Contemporain de Montréal, Montréal, Québec \(Canada\)
-
-*Trust*, Tramway, Glasgow \(Royaume\-Uni\)
-
-*Displaced Historie*s, Canadian Museum of Contemporary Photography, Ottawa, Ont\. \(Canada\)
-
-*Das Ende der Avant Garde, Kunst als Dienstleistung,* Sammlung Schürmann, Kunsthalle der
-
-Hypo\-Kulturstiftung, Munich \(Allemagne\)
-
-*En passan*t, Institut für Gegenwartskunst, Vienne \(Autriche\)
-
-**1994\-1995**
-
-*Temporary Translation\(s\), Sammlung Schürmann*, Kunst der Gegenwart und Fotografie, Hambourg \(Allemagne\)
-
-**1994**
-
-*The Media*, Magic Media Company, Huerth \(Allemagne\)
-
-*In the Field, Landscape in Recent Photography*, Margo Leavin Gallery, Los Angeles, Calif\. \(Etats\-Unis\)
-
-*First Light, Celebrating African Canadian Cinema, Canadian Artist's Network, Black Artists in Action*, Toronto, Ont\. \(Canada\)
-
-Borgmann Gallery, New York \(Etats\-Unis\)
-
-*Les Absences de la photographie*, Goethe Institut, Montréal, Québec \(Canada\)
-
-*Summer Group Sho*w, David Zwirner Gallery, New York, NY
-
-*Notational Photographs,* Metro Pictures and Petzel\-Borgmann Gallery, New York \(Etats\-Unis\)
-
-*Theoretical event*s, Naples \(Italie\)
-
-*Beeld\-Beeld = Image\-Image*, Museum van Hedendaagse Kunst, Gand \(Belgique\)
-
-*Een keuze uit de collecti*e, Museum van Hedendaagse Kunst, Gand \(Belgique\)
-
-*Stai*n, Galerie Nicolai Wallner, Copenhague \(Danemark\)
-
-*Neither Here Nor Ther*e, LACE, Los Angeles Contemporary Exhibitions, Los Angeles, Calif\. \(Etats\-Unis\)
-
-*The Medi*a, Magic Media Company, Hürth \(Allemagne\)
-
-**1993**
-
-*Self Winding*, Sphere Max, Tokyo \(Japon\)
-
-*Out of Place*, Vancouver Art Gallery, Vancouver, B\.C\. \(Canada\)
-
-*Tele\-Aesthetics,* Procter Art Center, Bard College, Annandale\-on\- Hudson, USA\.
-
-*Canada\-une nouvelle génération*, FRAC des Pays de la Loire, Gétigné\-Clisson; Musée de L'Abbaye Sainte\-Croix, Les Sables\-d'Olonne \(France\); Musée de beaux\-arts, Dole \(France\); FRAC Franche\-Comté, Dole \(France\)
-
-*Working Drawings*, Artspeak Gallery, Vancouver, B\.C\. \(Canada\)
-
-*Self Windin*g, Sphere Max, Tokyo \(Japon\); Nanba City Hall, Osaka \(Japon\)
-
-*Working Drawing*s, Artspeak Gallery, Vancouver, B\.C\. \(Canada\)
-
-*Private, Public = Privé, Publi*c, Winnipeg Art Gallery, Winnipeg, Man\. \(Canada\)
-
-*Behind the Sign*s, Artspeak Gallery, Vancouver, B\.C\. \(Canada\)
-
-*Gent te Gast, de keuze van Jan Hoet uit de collectie van het Museum van Hedendaagse Kunt in*
-
-*Gen*t, De Beyerd, Breda \(Pays\-Bas\)
-
-**1992**
-
-*Documenta 9*, Cassel \(Allemagne\)
-
-*The Creation \.\.\. of the African\-Canadian Odyssey*, Power Plant, Toronto, Ont\. \(Canada\)
-
-**1991**
-
-*Projected Image*, San Francisco Museum of Modern Art, San Francisco, Calif\. \(Etats\-Unis\)
-
-*Working Truth\-Powerful Fiction as part of the Regina Work Project*, Mackenzie Art Gallery, Regina, Sask\. \(Canada\)
-
-*Schwarze Kunst, Konzept zur Politik und Identitä*t, Neue Gesellschaft für Bildende Kunst, Berlin \(Allemagne\)
-
-*Northern Lights, an Exhibition of Canadian Video Art,* Canadian Embassy, Tokyo \(Japon\); Nagoya City Art Museum, Nagoya, Japan; Hokkaido Musem of Modern Art,
-
-Sapporo \(Japon\)
-
-**1990**
-
-*Aperto '90, Biennale di Venezia,* Venise \(Italie\)
-
-*Issues in Contemporary Video*, Mendel Art Gallery, Saskatoon, Sask\. \(Canada\)
-
-*Reenactment, Between Self and Other* , Power Plant, Toronto, Ont\. \(Canada\)
-
-*Privé/Public: Art et Discours Socia*l, Galerie d'art Essai &amp; Galerie du Cloitre, Rennes \(France\); *Private/Publi*c *: Art and Public Discourse: Art et discours socia*l, Winnepeg Art Gallery, Winnepeg, Canada
-
-*Passages de l'image*, Musée national d'art moderne, Centre Georges Pompidou, Paris \(France\); Fundació Caixa de Pensions, Barcelone \(Espagne\)
-
-*Issues in Contemporary Vide*o, Mendel Art Gallery \( TV Spots with broadcast\), Saskatoon,
-
-CANADA
-
-*The Eighth Biennale of Sydney, The Readymade Boomerang: Certain Relations in 20th Century*
-
-*Art,* Art Gallery of New South Wales, Sydney \(Australie\)
-
-*Reenactment, Between Self and Other,* Power Plant, Toronto, Ont\. \(Canada\)
-
-**1989**
-
-*Photo Kunst*, Staatsgalerie Stuttgart, Stuttgart \(Allemagne\)
-
-*Biennial Exhibition of Contemporary Canadian Art*, National Gallery of Canada, Ottawa, Ont\. \(Canada\)
-
-*Vancouver Exchange*, Cold City Gallery, Toronto, Ont\. \(Canada\)
-
-**1988**
-
-*Made in Camera*, VAVD Editions, Stockholm \(Suède\)
-
-*Behind the Sign*, Artspeak Gallery, Vancouver, B\.C\. \(Canada\)
-
-**1986**
-
-*Camera Works*, Or Gallery, Vancouver, B\.C\. \(Canada\)
-
-*Broken Muse*, Vancouver Art Gallery, Vancouver, B\.C\. \(Canada\)
-
-*Songs of Experience*, National Gallery of Canada, Ottawa, Ont\. \(Canada\)
-
-*Mechanics of Memory*, Surrey Art Gallery, Surrey, B\.C\. \(Canada\)
-
-**1983**
-
-*Vancouver, Art and Artists 1931\-1983*, Vancouver Art Gallery, Vancouver, B\.C\. \(Canada\)
-
-*PST, Pacific Standard Time*, Funnel Film Theatre \(a YYZ project\), Toronto, Ont\. \(Canada\) ; Western Front, Vancouver, B\.C\. \(Canada\)
-
- 
+Philippe\-Alain Michaud est conservateur, responsable de la collection Cinéma du Centre Pompidou, Musée national d'art moderne\.Cinéma du Centre Pompidou, Musée national d'art moderne\.
