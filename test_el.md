@@ -166,9 +166,6 @@ Musique de film : ***Étude***  \(novembre 1961\)
 *Pour un court\-métrage abstrait* de Piotr Kamler\.  
 INA\-GRM
 
-  
-
-
 ***Spontané I*** \(janvier 1962\)
 
 *Improvisation pour neuf exécutants\.*
@@ -210,9 +207,6 @@ CM Festival Ranelagh, Paris \(1962\)\.
 INA\-GRM
 
 Première version bande de Composé\-Composite
-
-  
-
 
 **1962 \- 1965**
 
@@ -816,9 +810,6 @@ La première version de cette partition avait pour titre *Danse des ministres ch
 
 Editions Salabert, Paris
 
-  
-
-
 **1979 \- 1981**
 
 ***Entrée***  \(1978\-1979\) \- 23'
@@ -1003,9 +994,6 @@ Elles commencent et elles sont déjà finies\. Quelquefois, elles ne commencent 
 
 *CD La Muse en Circuit \- Musidisc 242232*
 
-  
-
-
 **1985 \- 1987**
 
 ***Strathoven***  \(1985\) \- 3'
@@ -1061,9 +1049,6 @@ J'ai donc demandé à Colette Fellous d'embarquer dans ce rêve et de me le raco
 *Avec la voix de Anne Sée\.*
 
 *Prix Italia 1987\.\- CD MODE 81\.*
-
-**  
-**
 
 **1988 \- 1989**
 
