@@ -4,7 +4,7 @@ Eléments d<!-- p\.MsoNormal \{mso\-style\-parent:""; margin\-bottom:\.0001pt; f
 
 **1952 \- 1956**
 
-***Suite*** ***pour piano***\(1952\) – 7’04
+***Suite*** ***pour piano*** \(1952\) – 7’04
 
 CM Université de Miami \(1954\)\.
 
@@ -51,7 +51,7 @@ CM Maison des Lettres, Paris \(1956\)\.
 Editions Salabert, Paris
 
 ***Huit petites faces*** *pour*orchestre de chambre \(1955\) – 20’\.  
-\(2 Flûtes, hautbois, cor anglais, clarinette, basson, xylophone, piano, 4 violons I,  
+\(2 Flûtes, hautbois, cor anglais, clarinette, basson, xylophone, piano, 4 violons I,   
 3 violons II, 2 altos, 3 violoncelles\.\)
 
 Editions Salabert, Paris
@@ -60,7 +60,7 @@ Editions Salabert, Paris
 
 \(poème de Romain Weingarten\)\.
 
-***VisageI*** *pour piano*\(1956\)\- 5'32
+***Visage I*** *pour piano*\(1956\)\- 5'32
 
 CM Darmstadt \(1957\)\.
 
@@ -96,21 +96,21 @@ Prix de la Biennale de Paris \(1962\)\.
 
 ***Étude aux accidents*** \(juin 1958\) – 2’14
 
-*Musique concrète \-*INA\-GRM
+*Musique concrète \-* INA\-GRM
 
 CM Exposition Internationale, Bruxelles \(1958\)\.
 
 *Disque BAM LD 070 \(vinyle\)*
 
-***Étude aux sons tendus*** \(Juillet 1958\)**–** 2’48
+***Étude aux sons tendus*** \(Juillet 1958\) **–**  2’48
 
-*Musique concrète \-*INA\-GRM
+*Musique concrète \-* INA\-GRM
 
 CM Exposition Internationale, Bruxelles \(1958\)\.
 
 *Disque BAM LD 070 \(vinyle\)*
 
-Musique pour le théâtre :***Passage pour mimes*** \(1959\)
+Musique pour le théâtre : ***Passage pour mimes*** \(1959\)
 
 *Musique concrète*\- INA\-GRM
 
@@ -124,21 +124,21 @@ CM Expériences Musicales, Paris \(1959\)\.
 
 *Disque Philips 6526 003 \(vinyle\)*
 
-Musique de film :***Égypte ô Égypte I*** \(1960\)
+Musique de film : ***Égypte ô Égypte I*** \(1960\)
 
-*Pour un court\-métrage*de Jacques Brissot\.*\-*INA\-GRM
+*Pour un court\-métrage* de Jacques Brissot\. *\-* INA\-GRM
 
 ***Tête et queue du dragon*** \(1959\-60\) – 9’13
 
-*Musique concrète\.\-*INA\-GRM
+*Musique concrète\.\-* INA\-GRM
 
 CM Festival de la Recherche, Paris \(1960\)
 
-*Disque Candide CE 31025 \(vinyle\) \-**EMF CD 037 \- 2003*
+*Disque Candide CE 31025 \(vinyle\) \-* *EMF CD 037 \- 2003*
 
 ***Tautologos I*** \(1961\) – 5’
 
-*Musique électronique \-*INA\-GRM
+*Musique électronique \-* INA\-GRM
 
 commande de Hermann Scherchen,
 
@@ -146,23 +146,23 @@ réalisée dans ses studios à Gravesano\.
 
 CM Concert R\.T\.F\., Paris \(1962\)\.
 
-*Disque BAM LD 072 \(vinyle\) \-EMF CD 037 – 2003*
+*Disque BAM LD 072 \(vinyle\) \- EMF CD 037 – 2003*
 
 **1961 \- 1962**
 
 ***Tautologos II*** \(1961\) – 14’54
 
-*Musique concrète\. \-*INA\-GRM
+*Musique concrète\. \-* INA\-GRM
 
 CM Paris, Concert R\.T\.F\. \(1962\)\.
 
-*Disque BAM LD 071 \(vinyle\) \-EMF CD 037 \- 2003*
+*Disque BAM LD 071 \(vinyle\) \- EMF CD 037 \- 2003*
 
-Musique de film :***Forme Bleue*** \(novembre 1961\)  
+Musique de film : ***Forme Bleue*** \(novembre 1961\)  
 *pour un court\-métrage abstrait*de Piotr Kamler\.  
 INA\-GRM
 
-Musique de film :***Étude*** \(novembre 1961\)  
+Musique de film : ***Étude*** \(novembre 1961\)  
 *Pour un court\-métrage abstrait*de Piotr Kamler\.  
 INA\-GRM
 
@@ -181,7 +181,7 @@ INA\-GRM
 
 *Improvisation pour huit exécutants\.*
 
-La séance de travail au cours de laquelle*Spontané III* a été exécutée a été filmée \(court\-métrage 16 mm, réalisation Gérard Patris\)\.
+La séance de travail au cours de laquelle *Spontané III* a été exécutée a été filmée \(court\-métrage 16 mm, réalisation Gérard Patris\)\.
 
 ***Spontané IV*** \(avril 1962\)
 
@@ -191,10 +191,10 @@ L'exécution de Spontané IV a été filmée et a donné lieu à un court\-métr
 
 4 improvisations sur schéma orchestral avec l'ensemble EIMCP sous la direction de Konstantin Simonovic, dans le cadre des expériences instrumentales du G\.R\.M\. dont j'avais la charge\.
 
-Musique de film :***Chastel*** \(mai 1962\)  
+Musique de film : ***Chastel*** \(mai 1962\)  
 INA\-GRM
 
-Musique de film :***Égypte ô Égypte II*** \(janvier \- septembre 1962\)  
+Musique de film : ***Égypte ô Égypte II*** \(janvier \- septembre 1962\)  
 *pour un long\-métrage couleur 35 mm*  
 de Jacques Brissot\.  
 INA\-GRM
@@ -219,14 +219,14 @@ Première version bande de Composé\-Composite
 ***Composé Composite*** \(octobre 1962 \- février 1963\) – 10’
 
 *Pour orchestre et bande magnétique\.*  
-\(2 flûtes, hautbois, clarinette, clarinette basse, basson, contrebasson, 2 cors,  
-2 trompettes, trombone, 2 percussions, harpe, 10 violons I, 8 violons II, 8 altos,  
+\(2 flûtes, hautbois, clarinette, clarinette basse, basson, contrebasson, 2 cors,   
+2 trompettes, trombone, 2 percussions, harpe, 10 violons I, 8 violons II, 8 altos,   
 8 violoncelles, 4 contrebasses\)  
 Version définitive du concert collectif\.  
 CM Festival de Venise \(1963\), Festival de Zagreb \(1963\)\.  
 *Disque Philips 836 894 \(vinyle\)*
 
-Musique de film :***Les Pèlerins*** \(août 1962 \- avril 1963\)  
+Musique de film : ***Les Pèlerins*** \(août 1962 \- avril 1963\)  
 Court\-métrage 35 mm couleur sur le Festival Richard Wagner de Bayreuth\.
 
 Co\-réalisation avec Jacques Brissot\.
@@ -234,27 +234,27 @@ Co\-réalisation avec Jacques Brissot\.
 INA\-GRM
 
 ***Flashes*** \(janvier \- juin 1963\) – 17’  
-*Musique pour quatorze instruments\.*Paris \(1964\)\.  
+*Musique pour quatorze instruments\.* Paris \(1964\)\.  
 \(Flûte, hautbois, clarinette, basson, cor, trompette, trombone, 2 violons, alto, violoncelle, contrebasse, 2 percussions\)\.  
 CM Paris 1964 par l'EIMCP, Konstantin Simonovic\.  
 Editions Transatlantiques
 
-Musique de film :***Portrait d'une autre*** \(octobre \- décembre 1963\)  
+Musique de film : ***Portrait d'une autre*** \(octobre \- décembre 1963\)  
 *pour court\-métrage 35 mm couleur*  
-deMarie\-Claire Patris\.  
+de Marie\-Claire Patris\.  
 INA\-GRM
 
-Musique de film :***Dernier Matin*** d'E\.\-A\. Poe \(janvier 1964\)  
+Musique de film : ***Dernier Matin*** d'E\.\-A\. Poe \(janvier 1964\)  
 *pour court\-métrage 35 mm noir et blanc*  
-deJean Barral\.  
+de Jean Barral\.  
 INA\-GRM
 
-***Hétérozygote*** \(1963\-64\)*\-* 27'
+***Hétérozygote*** \(1963\-64\) *\-* 27'
 
 *Bande magnétique stéréo*  
 Première musique dite &quot;anecdotique&quot;, ou introduction des sons réalistes, comme images concrètes ajoutées aux sons et structures abstraites traditionnelles\. Le public devient actif par le fait qu'il lui est implicitement demandé d'imaginer sa propre anecdote\.  
 INA\-GRM  
-*Disque Philips 836 885 DSY \(vinyle\)\.  
+*Disque Philips 836 885 DSY \(vinyle\)\.   
 CD BVHaast Records Acousmatrix 3 \(1990\)*
 
 ***La musique à l'envers*** Fragment d'un opéra collectif \(1965\)
@@ -266,7 +266,7 @@ Composition de circonstance\.
   
 Société I
 
-*Pour sept réalisateurs et le public*\(1965\)Durée indéterminée\.  
+*Pour sept réalisateurs et le public*\(1965\)Durée indéterminée\.   
 Jeu social qui, à partir d'éléments sonores et théâtraux, est destiné à créer un grand désordre au cours duquel on espère que les barrières de la convention seront renversées\. Le but est d'arriver ainsi à la communication qui, partie d'un lieu donné, puisse continuer dans la vie\.  
 Ce lieu peut être du genre théâtre ou café\-théâtre, et les réalisateurs peuvent être musiciens ou acteurs, professionnels ou amateurs\. Dans ce réalisable, comme dans certaines partitions\-textes, il sera souhaitable, pour coordonner l'action des réalisateurs, de faire appel à un metteur en scène\.  
   
@@ -280,8 +280,8 @@ Création mise en scène par l'auteur à &quot;La Vieille Grille&quot;, Paris, 1
 
 **Les Grandes Répétitions** \(1965\-1966\)
 
-*5 films 16 mm double\-bande*chacun entre 45' et 55'\.  
-Réalisation en collaboration avec Gérard Patris, de cinq portraits de musiciens\.  
+*5 films 16 mm double\-bande* chacun entre 45' et 55'\.  
+Réalisation en collaboration avec Gérard Patris, de cinq portraits de musiciens\.   
 Non seulement on peut considérer ces films comme des documents \(vu l'importance du sujet et la manière dont il est traité\), mais je crois que c'était la première fois qu'on diffusait en France de la musique contemporaine à la télévision\.:  
 ***\- Et expecto resurrectionem mortuorum*** , d'Olivier Messiaen, à l'occasion de la création de l'œuvre dans la cathédrale de Chartres, en présence du Général De Gaulle \(diffusion : 11 novembre 1965\)\.  
 ***\- Hommage à Varèse*** , portrait\-souvenir et témoignages de plusieurs compositeurs \(diffusion : 20 avril 1966\)\.  
@@ -292,14 +292,14 @@ INA, Paris
 
 ***Und so weiter*** *pour piano et bande magnétique*\(1965\-1966\) \- 18'
 
-Bande réalisée au G\.R\.M\., Paris\.  
+Bande réalisée au G\.R\.M\., Paris\.   
 Commande de Radio Bremen, CM Musika Viva \(1966\)  
-*Disque Wergo 60046\. \(vinyle\) \-EMF CD 037 \- 2003*
+*Disque Wergo 60046\. \(vinyle\) \- EMF CD 037 \- 2003*
 
 ***Symphonie inachevée*** *pour grand orchestre*\(1963\-1966\) \- 35'48  
-\(4 flûtes, 3 hautbois, 1 cor anglais, 3 clarinettes, 1 clarinette basse, 3 bassons,  
-1 contrebasson, 4 cors, 3 trompettes, 3 trombones, 1 tuba, 2 harpes, 1 piano,  
-4 percussions, 26 violons, 10 altos, 10 violoncelles, 6 contrebasses et  
+\(4 flûtes, 3 hautbois, 1 cor anglais, 3 clarinettes, 1 clarinette basse, 3 bassons,   
+1 contrebasson, 4 cors, 3 trompettes, 3 trombones, 1 tuba, 2 harpes, 1 piano,   
+4 percussions, 26 violons, 10 altos, 10 violoncelles, 6 contrebasses et   
 2 chefs d'orchestre\)  
 Et en 1966, j'ai inachevé ma symphonie\.  
 CM pour l'inauguration de la Maison de la Culture de Rennes \(je crois en 1968\)\.  
@@ -307,14 +307,14 @@ CM pour l'inauguration de la Maison de la Culture de Rennes \(je crois en 1968\)
 
 **1967**
 
-Musique de film :***So*** \(1967\)
+Musique de film : ***So*** \(1967\)
 
-*Musique concrète*pour le film*Elektronische**Musik* de J\.A\. Riedl\.
+*Musique concrète* pour le film *Elektronische* *Musik* de J\.A\. Riedl\.
 
-***Société II\. Et si le piano était un corps de femme*** \(1967\) \-30' env\.
+***Société II\. Et si le piano était un corps de femme*** \(1967\) \- 30' env\.
 
 *pour quatre solistes et seize instruments*  
-\(Flûte, hautbois, clarinette, basson, cor, trompette, trombone, 4 violons, 2 altos,  
+\(Flûte, hautbois, clarinette, basson, cor, trompette, trombone, 4 violons, 2 altos,   
 2 violoncelles, 1 contrebasse\. Solistes : 1 piano, 3 percussions\.\)  
 CM Paris, 1968\.  
 On peut dire que cette pièce se situe comme théâtre musical dans la mesure où les quatre solistes \(piano et trois percussions\) rivalisent d'intérêt pour le corps du piano qui reste désespérément froid\.  
@@ -322,26 +322,26 @@ On pourrait presque trouver là, si on voulait, mais ce n'est pas sûr, la caric
 *Disque Deutsche Grammophon \(vinyle\)\.*  
 Partition : Éditions Moeck\.
 
-***Interrupteur*** *pour dix instruments*\(1967\) \- 20' env\.  
+***Interrupteur*** *pour dix instruments* \(1967\) \- 20' env\.  
 \(Cor anglais, clarinette, clarinette basse, cor, trompette, violon, alto, violoncelle,
 
-2 percussions\)\.  
+2 percussions\)\.   
 CM Barcelone, mai 1968\.  
-Le premier essai caractéristique de musique immobile \(bien que l'on trouve déjà cette préoccupation dans*Composé\-Composite* et dans la musique pour*Égypte ô Égypte* \(1962\)\.  
+Le premier essai caractéristique de musique immobile \(bien que l'on trouve déjà cette préoccupation dans *Composé\-Composite* et dans la musique pour *Égypte ô Égypte* \(1962\)\.  
 Cette pièce est un tournant dans mon travail, dans le sens où elle est &quot;presque&quot; débarrassée de la mythologie post\-sérielle\.  
 *Disque EMI C061\-11133 \(vinyle\)\.*  
 Partition : Éditions Moeck\.  
 
 
-Musique de film :***Tinguely*** \(1967\)  
-*Musique concrète*pour une émission de télévision  
+Musique de film : ***Tinguely*** \(1967\)  
+*Musique concrète* pour une émission de télévision   
 de C\. Caspari\. NDR, Hambourg\.
 
-Film :***Les jeunes filles*** ou***Société III*** \(1967\)
+Film : ***Les jeunes filles*** ou***Société III*** \(1967\)
 
-*Film 16 mm double\-bande*25'\.  
+*Film 16 mm double\-bande* 25'\.  
 Production : TV Hamburg 3e programme NDR \(en allemand\)\.  
-Ce film est probablement démodé du fait qu'il était un peu basé sur la mode\. Ou alors est\-il déjà devenu kitsch\. C'était en tout cas dans mon idée, comme une sorte*d'Hétérozygote* en images\.  
+Ce film est probablement démodé du fait qu'il était un peu basé sur la mode\. Ou alors est\-il déjà devenu kitsch\. C'était en tout cas dans mon idée, comme une sorte *d'Hétérozygote* en images\.  
 NDR, Hambourg\.
 
 ***Société IV \- Mécanique Collectivité Individu*** \(1967\) \- 50' env\.
@@ -360,7 +360,7 @@ Version bande magnétique stéréo 20'\. Version permanente pour quatre magnéto
 La nature a disparu dans un tourbillon de militaires et d'industries au milieu duquel on entrevoit un folklore agonisant et une jeune fille perdue\.  
 La version &quot;Installation&quot; permet de sonoriser un lieu dans lequel le promeneurest libre de choisir son itinéraire musical\.  
 *Disque Wergo 50054 \(vinyle\)  
-CD &quot;Presque Rien&quot; INA\-GRM / La Muse en Circuit \-musidisc245172*
+CD &quot;Presque Rien&quot; INA\-GRM / La Muse en Circuit \- musidisc245172*
 
 ***Société V \- Participation or not participation*** \(1967\-1969\) \- \(durée indéterminée\)\.
 
@@ -372,7 +372,7 @@ Action théâtrale mettant en jeu, dans un &quot;sociodrame&quot; et en prenant 
 
 Ce jeu peut être monté comme un véritable spectacle et dans un vrai théâtre, mais avec l'inconnue de chaque soir :quelle direction le public va\-t\-il donner à l'action\.
 
-***Société VI*** ***\- Liberté, liberté chérie***\(1969\) – \(durée indéterminée\)\.
+***Société VI*** ***\- Liberté, liberté chérie*** \(1969\) – \(durée indéterminée\)\.
 
 *Pour public solo*
 
@@ -385,7 +385,7 @@ On peut pour l'instant laisser ces 2 partitions de côté\.
 ***Tautologos III ou Vous plairait\-il de tautologuer avec moi ?*** \(1969\) \-Durée indéterminée\. \(*Pour n'importe quel groupe d'instruments*\)\. Partition\-texte\.
 
 CM Madrid Semana Nueva Musica 1969  
-Explication systématique du &quot;procédé tautologique&quot; que j'emploie de façon non systématique \(parce que je n'aime pas les systèmes\) depuis 1960\. Ce réalisable permet à des professionnels ou à des amateurs d'expérimenter les mécanismes répétitifs à partir d'éléments musicaux, théâtraux ou visuels, librement choisis par eux\. Peut aussi être utilisé comme matériel pour un travail pédagogique\.  
+Explication systématique du &quot;procédé tautologique&quot; que j'emploie de façon non systématique \(parce que je n'aime pas les systèmes\) depuis 1960\. Ce réalisable permet à des professionnels ou à des amateurs d'expérimenter les mécanismes répétitifs à partir d'éléments musicaux, théâtraux ou visuels, librement choisis par eux\. Peut aussi être utilisé comme matériel pour un travail pédagogique\.   
 Partition : Éditions Moeck\.  
   
   
@@ -400,7 +400,7 @@ Production : G\.R\.M\., Paris\.
 
 CM Paris, concert GRM, Théatre Récamier 1973  
 Musique abstraite, mais peut\-être aussi une méditation sur la solitude et le sommeil\.  
-*Disque Philips 836 885 DSY \(vinyle\)\.  
+*Disque Philips 836 885 DSY \(vinyle\)\.   
 Luc Ferrari \- Matin et Soir MUSIDISC 242242*
 
 ***J'ai tort, j'ai tort, j'ai mon très grand tort*** \(1969\)
@@ -411,7 +411,7 @@ Partition\-texte\. Un chœur ou des acteurs arrivent, par un effet de surprise, 
 
 Partition : Édition Moeck \(français et allemand\)\.  
   
-***Ce dispositif et son disnégatif***\(1969\-1970\)
+***Ce dispositif et son disnégatif*** \(1969\-1970\)
 
 CMRadio Stockholm \(1970\)\.
 
@@ -419,7 +419,7 @@ Partition\-texte\. Comment la lecture d'une partition peut entraîner les musici
 
 Ces deux partitions font aussi partie d'une époque spéciale\. Elles se situent dans l'esprit &quot;happening&quot; et peuvent être considérées comme des documents paléontologiques\.
 
-***Presque rien*** *ou**Le lever du jour au bord de la mer***\(1967\-1970\) \- 20'
+***Presque rien*** *ou **Le lever du jour au bord de la mer*** \(1967\-1970\) \- 20'
 
 *Bande magnétique stéréo*\.  
 Après la disparition totale des sons abstraits, on peut considérer cette piècecomme une diapositive sonore et l'aboutissement de toute une évolution\. Restitution réaliste la plus fidèle possible d'un village de pêcheurs qui se réveille\. Première idée du minimalisme\.  
@@ -431,7 +431,7 @@ CD &quot;Presque Rien&quot; INA\-GRM / La Muse en Circuit \- MUSIDISC 245172*
 *Réalisation N°4*\.  
 *pour 11 instrumentistes\.*  
 \(Flûte, hautbois, clarinette, trompette, trombone, alto, violoncelle, contrebasse, guitare électrique, orgue électrique, vibraphone\)\.  
-Pour illustrer le texte et comme exemple de réalisation possible sous forme de bande  
+Pour illustrer le texte et comme exemple de réalisation possible sous forme de bande   
 \(N° 3\) ou de partition traditionnelle \(N° 4\)\.  
 *Réalisation N°3 : Disque EMI C 061 11133 \(vinyle\)\.*  
 Partition N° 4 : Éditions Moeck
@@ -441,8 +441,8 @@ Partition N° 4 : Éditions Moeck
 *Bande magnétique stéréo*\.  
 Production : Hörspiel S\.W\.F\., Baden\-Baden\.  
 Un auteur qui se raconte à travers des extraits et des mélanges de ses propres musiques, et qui se raconte à travers les bruits qui l'entourent et les gens qui parlent\. Peu à peu, l'auteur oublie son portrait et donne à entendre les bruits du dehors\. \(*en allemand*\)\.  
-*Prix Karl Sczuka 1972\.  
-*  
+*Prix Karl Sczuka 1972\.*  
+  
 1971 \- 1972
 
 ***Unheimlich Schön*** \(1971\) \- 20'
@@ -454,7 +454,7 @@ Comment respire une jeune femme qui pense à autre chose\.\.\.
 
 ***Pornologos 2*** \(1971\)
 
-*Réalisable érotique*\(durée indéterminée\)\.
+*Réalisable érotique* \(durée indéterminée\)\.
 
 Partition\-texte\. Cette partition s'adresse à des particuliers ou à des groupes privés, car sa réalisation publique \(et non commerciale\) me semble difficile\. Outre son implication directement sexuelle, ce réalisable ambigu à buts multiples peut être aussi bien considéré comme leçon de musique que comme un acte politique\.
 
@@ -466,15 +466,15 @@ inaccessible\.
 
 *Réunion des partitions\-textes sous forme de livre, accompagnées de différentes réflexions autobiographiques\.*
 
-On remarque ici l'évolution bizarre qui va du réalisable à réaliser \(par exemple,*Tautologos 3*\) jusqu'au réalisable utopique et probablement impossible comme*Subversion\-Dérision*ou*la Subder\.* On trouve dans ce livre, tous les thèmes qui me travaillent et que l'on peut résumer ainsi : comment la création, quand elle reste sur un
+On remarque ici l'évolution bizarre qui va du réalisable à réaliser \(par exemple, *Tautologos 3*\) jusqu'au réalisable utopique et probablement impossible comme *Subversion\-Dérision* ou *la Subder\.* On trouve dans ce livre, tous les thèmes qui me travaillent et que l'on peut résumer ainsi : comment la création, quand elle reste sur un
 
-plan uniquement esthétique, risque de masquer la réalité et de n'être quelques fois qu'un gaspillage d'énergie\.
+plan uniquement esthétique, risque de masquer la réalité et de n'être quelques fois qu'un gaspillage d'énergie\. 
 
 Jusqu'à présent impublié\. Il n'est pas possible d'en faire des copies, c'est trop compliqué\. Donc il faut considérer ce paragraphe comme pure information\.
 
 ***Allô, ici la terre*** \(1971\-1972\)
 
-*Premier chapitre\. Play\-light and time\-show \-*2 h\. env\.  
+*Premier chapitre\. Play\-light and time\-show \-* 2 h\. env\.  
 *Scénario et musique : Luc Ferrari\. Photographies : Jean\-Serge Breton\.*
 
 Commande de la Ville de Bonn\.
@@ -491,7 +491,7 @@ Dans cette terre\-là, les éléments qui sont représentés sont au nombre de 9
 
 Partition : Schott's Söhne, Mainz \(Allemagne\)\.
 
-Film :***Kennen Sie Schönberg ?*** \(1972\)*Film 16 mm double\-bande \-*30'
+Film : ***Kennen Sie Schönberg ?*** \(1972\)*Film 16 mm double\-bande \-* 30'
 
 Production 3e programme TV, WDR, Cologne\.
 
@@ -525,7 +525,7 @@ Montage d'interviews de différents groupes sociaux, sur différents problèmes 
 
 Accompagnée des commentaires de l'auteur \- c'est\-à\-dire du journaliste amateur \- c'est la première réalisation du genre enquête\.
 
-Le circuit de diffusion idéal de cette bande devrait être Maison des Jeunes, etc\., afin de les inciter à faire la même chose et que le produit devienne ainsi un échange d'informations entre les groupes\.
+Le circuit de diffusion idéal de cette bande devrait être Maison des Jeunes, etc\., afin de les inciter à faire la même chose et que le produit devienne ainsi un échange d'informations entre les groupes\. 
 
 Cette bande est un pur produit des années 70 : &quot;Les intellectuels et le peuple&quot;\. A déconseiller\.
 
@@ -541,19 +541,19 @@ Entourées par une musique \(du genre folklore imaginaire\) dont je fais l'analy
 
 Un compositeur milite pour la libération de la femme\.
 
-*CD ELICA mpo\-3340,*LP*ELICA 4VL 3704– 2003*
+*CD ELICA mpo\-3340,* LP*ELICA 4VL 3704 – 2003*
 
 Films Documentaire en deux épisodes :
 
 **\-*Presque rien ou le désir de vivre*** \(1972\-1973\)
 
-*16 mm double\-bande*\(55'\)\.
+*16 mm double\-bande* \(55'\)\.
 
 Production : S\.W\.F\., Unterhaltung Musik und Dramaturgie,
 
 Baden\-Baden\.
 
-Première partie :***Le Causse Méjean*\.**
+Première partie : ***Le Causse Méjean*\.**
 
 Comment vivent les paysans d'une région pauvre : des paysans français interrogés par un couple d'Allemands\.
 
@@ -567,7 +567,7 @@ Ce film, très lent, non seulement se critique lui\-même, mais laisse aux spect
 
 Production : S\.W\.F\., Unterhaltung Musik und Dramaturgie, Baden\-Baden\.
 
-Deuxième partie :***Le Plateau du Larzac*** \.
+Deuxième partie : ***Le Plateau du Larzac*** \.
 
 Comment les paysans luttent pour conserver leur droit de vivre et de travailler leurs terres que l'armée veut prendre comme terrain de manœuvres\.
 
@@ -581,7 +581,7 @@ Ce film est un document qui montre un exemple de lutte d'une minorité\.
 
 *Bande magnétique stéréo*\.
 
-Mise en forme musicale de la bande sonore du film*Presque rien ou le désir de vivre*, où j'essaie de traduire musicalement l'impression ressentie devant le développera peut\-être, qui sait ?
+Mise en forme musicale de la bande sonore du film *Presque rien ou le désir de vivre*, où j'essaie de traduire musicalement l'impression ressentie devant le développera peut\-être, qui sait ?
 
 Cela consiste à proposer des résultats, à partir de comparaisons ou de déductions non intellectuelles\.
 
@@ -615,7 +615,7 @@ Instrumentation libre\. Cette pièce musicale \- qui comme son nom l'indique, es
 
 Comme son nom l'indique aussi, cette bande a été conçue pour un moment d'occasion\.
 
-***Labyrinthe de violence*** \(février 1975\)***«Mais où donc est\-on?»***
+***Labyrinthe de violence*** \(février 1975\) ***«Mais où donc est\-on?»***
 
 *Bande magnétique stéréo et diapositives\.*
 
@@ -628,7 +628,7 @@ Multimédia très lié à la situation politique de cette année\-là\.
 CMMusée Galiera, 23\-25\-26 juin 1975  
   
   
-**1975 \-1977**
+**1975 \- 1977**
 
 ***Cellule 75, Force du Rythme et Cadence Forcée*** \(mai \- novembre 1975\) \- 31'
 
@@ -640,9 +640,9 @@ Les données musicales en présence sont les suivantes : la force instinctive du
 
 *Disque : La Muse en Circuit MEC01 \- \(vinyle\) –*
 
-*CD La Muse en Circuit \- Musidisc 242232\.CD Tzadik USA \-*TZ 7033
+*CD La Muse en Circuit \- Musidisc 242232\. CD Tzadik USA \-* TZ 7033
 
-***Algérie 76*N°1\.La révolution agraire** \(mars \- juin 1976\) – \(32'\)*\.*
+***Algérie 76* N°1\. La révolution agraire** \(mars \- juin 1976\) – \(32'\)*\.*
 
 *Bande magnétique seule ou bande magnétique et diapositives*
 
@@ -652,7 +652,7 @@ Reportage sur les paysans algériens qui, après la Révolution Agraire, ont re�
 
 *\(bilingue français\-arabe\)\.*
 
-***Algérie 76*N° 2\. Belghimouze, Village Socialiste**
+***Algérie 76* N° 2\. Belghimouze, Village Socialiste**
 
 \(mars 1976 \- janvier 1977\) \- \(30'\)\.
 
@@ -682,9 +682,9 @@ Reportage &quot;symphonique&quot; illustré par une musique originale et les bru
 
 ***Place des Abbesses*** \(juin 1977\) \- 25'
 
-*Musique pour un film de*Erika Magdalinski\.
+*Musique pour un film de* Erika Magdalinski\.
 
-Production*: INA*
+Production *: INA*
 
 Portrait, comme son nom l'indique, de la place des Abbesses\.
 
@@ -692,7 +692,7 @@ Bande stéréo qui peut s'écouter sans le film\.
 
 Bien que destinée à un film, cette bande a un intérêt musical et s'inscrit dans la série des portraits sonores de lieux\.
 
-*CD Tzadik USA \-*TZ 7033
+*CD Tzadik USA \-* TZ 7033
 
 Musique de film :***Les Apprentis*** \(juillet 1977\) \- 1 h 20'
 
@@ -730,7 +730,7 @@ CD Césaré, France
 
 Suite d'exercices \(5 à 7' chacun\) pouvant faire l'objet d'improvisation individuelle ou collective pour n'importe quel instrument ou groupe d'instruments \(8 au maximum\)\. Chaque exercice est basé sur une continuité : couleur harmonique ou mélodique, rythmes, etc\. Ils sont destinés à des amateurs ou à des professionnels, à des élèves et peuvent prendre place dans des concerts\.
 
-***Presque rien N°2\.&quot;Ainsi continue la nuit dans ma tête multiple&quot;*** \(sept\.\- oct\. 1977\)
+***Presque rien N°2\. &quot;Ainsi continue la nuit dans ma tête multiple&quot;*** \(sept\.\- oct\. 1977\)
 
 \(21'\) \.*Bande magnétique stéréo*\.
 
@@ -756,13 +756,13 @@ de travail, de la gestion socialiste et du fonctionnement de l'usine\. Reportage
 
 bruits et les ambiances de la vie quotidienne\.
 
-*Algérie 1, 2, 3*sont aussi des portraits de lieux d'un intérêt sonore certain, malheureusement la &quot;révolution algérienne&quot; qui est exprimée ici comme libération du colonialisme, a cédé la place à un déchirement religieux rétrograde\. Ces 3 Portraits sont vraiment dépassés\. Hélas \!
+*Algérie 1, 2, 3* sont aussi des portraits de lieux d'un intérêt sonore certain, malheureusement la &quot;révolution algérienne&quot; qui est exprimée ici comme libération du colonialisme, a cédé la place à un déchirement religieux rétrograde\. Ces 3 Portraits sont vraiment dépassés\. Hélas \!
 
 **1978 – 1979**
 
 ***A la recherche du rythme perdu\.*** Réflexion sur l'écriture N° 2 \(février 1978\) \- 20'
 
-*Pour piano et bande magnétique*\(peut être joué aussi en ajoutant d'autres musiciens\)
+*Pour piano et bande magnétique* \(peut être joué aussi en ajoutant d'autres musiciens\)
 
 CM Narbonne 1978
 
@@ -774,15 +774,15 @@ Situant un climat, la notation et les propositions écrites sont réduites au mi
 
 ***Promenade symphonique dans un paysage musical\.***
 
-ou***Un jour de fête à El Oued en 1976*\.** \(mars 1976 \- mars 1978\) \- 32'
+ou ***Un jour de fête à El Oued en 1976*\.**  \(mars 1976 \- mars 1978\) \- 32'
 
-*Bande magnétique stéréo seule*\.*A l'origine, version*audiovisuelle\.  
+*Bande magnétique stéréo seule*\. *A l'origine, version* audiovisuelle\.   
 Photographies de Nasser Edin Ghénifi\.
 
 Le son du paysage, les voix, le langage, le marché, la fête font une symphonie qui retrace une journée de promenade dans la région d'El Oued, et situent la musique dans son environnement véritable\.
 
 *Disque INA\-GRM 9104 fe \(vinyle\)\.  
-Sub rosa,BelgiqueSR252*2006
+Sub rosa, BelgiqueSR252* 2006
 
 ***Chantal, ou le portrait d'une villageoise*** \(juillet 1977 \- avril 1978\) \- 40'
 
@@ -801,7 +801,7 @@ Extraits de la préface : le Cers est un vent du nord qui souffle au pays d'Aude
 
 *Disques : Ventadorn VT 323 \(vinyle\) CD Musidisc 242262\.*
 
-***Apparition et disparition mystérieuses d'un accord*** \(sept\. 1978\) \-Durée aléatoire
+***Apparition et disparition mystérieuses d'un accord*** \(sept\. 1978\) \- Durée aléatoire
 
 *Pour quatuor de saxophones alto\.*  
 Partition pédagogique destinée à être travaillé dans le cadre d'écoles de musique\. La réalisation est décidée par le groupe qui choisit son chemin à travers la partition, en fonction de ses capacités\.
@@ -810,9 +810,9 @@ Partition pédagogique destinée à être travaillé dans le cadre d'écoles de 
 
 *Pour piano, violoncelle et clarinette basse\.*
 
-CM*Darmstadt 1980*
+CM *Darmstadt 1980*
 
-La première version de cette partition avait pour titre*Danse des ministres chez les Pompidou\.* Le titre n'ayant plus d'actualité ni d'intérêt critique, les idées ont été remaniées et la partition réécrite sous forme de danse à trois personnages\.
+La première version de cette partition avait pour titre *Danse des ministres chez les Pompidou\.* Le titre n'ayant plus d'actualité ni d'intérêt critique, les idées ont été remaniées et la partition réécrite sous forme de danse à trois personnages\.
 
 Editions Salabert, Paris
 
@@ -833,13 +833,13 @@ Les intentions du non\-dit de cette pièce sont la sensualité dans sa significa
 
 Éditions Transatlantique\.
 
-Musique de film :***Le Dernier Soleil*** \(mai 1980\)
+Musique de film : ***Le Dernier Soleil*** \(mai 1980\)
 
 *pour un film sur les Aztèques\.*45'\.
 
 Production : C\.N\.R\.S\. Paris\.
 
-Musique de film :***Le Petit Pommier*** \(juin 1980\)
+Musique de film : ***Le Petit Pommier*** \(juin 1980\)
 
 1 h 30\. En collaboration avec David Jisse\.
 
@@ -871,7 +871,7 @@ Cette parole narrative se fraie un passage à travers des styles changeants, don
 
 Editions Salabert, Paris
 
-Musique de film :***Ateliers*** \(septembre 1981\)
+Musique de film : ***Ateliers*** \(septembre 1981\)
 
 pour un film sur trois peintres, réalisé par Joël Farge\.
 
@@ -881,9 +881,9 @@ Séquence pour la peinture de Jean Clerté\.
 
 **1982 \- 1983**
 
-Musique de film :***Chronopolis*** \(avril 1981 \- février 1982\)
+Musique de film : ***Chronopolis*** \(avril 1981 \- février 1982\)
 
-pour un film expérimental d'animation de Piotr Kamler\. Couleur35 mm \(72'\)\.
+pour un film expérimental d'animation de Piotr Kamler\. Couleur 35 mm \(72'\)\.
 
 ***Jetzt \(Maintenant\)*** \(septembre 1981 \- avril 1982\) \- 1 h\. 45'
 
@@ -891,7 +891,7 @@ pour un film expérimental d'animation de Piotr Kamler\. Couleur35 mm \(72'\)\.
 
 *Composition radiophonique\.*
 
-Production : Hessischer Rundfunk\. Département*Hörspiel\.*
+Production : Hessischer Rundfunk\. Département *Hörspiel\.*
 
 L'écoute est comme un rêve ou comme la pensée qui raconte quelque chose, mais dans laquelle les images se bousculent, perdant leurs réalités et en acquérant d'autres, au point de vivre en pensée plusieurs réalités en même temps\.
 
@@ -917,7 +917,7 @@ Livre\-partition : La Muse en Circuit, Paris, \(épuisé\)\.
 
 ***Préface pour piano*** \(1983\) – 10’
 
-Pièce composée à partir de l’introduction du*Journal Intime*\.Sans extravagance, mais peut figurer sans honte dans un programme, peut servir de liaison ou de matière d’improvisation, peut être découpée en tranches, peut se jouer à plusieurs, etc\. \(10’\)
+Pièce composée à partir de l’introduction du *Journal Intime*\.Sans extravagance, mais peut figurer sans honte dans un programme, peut servir de liaison ou de matière d’improvisation, peut être découpée en tranches, peut se jouer à plusieurs, etc\. \(10’\)
 
 Les interprètes utilisent alors la partition comme matière et décident ensemble de son orchestration\. Les parties écrites peuvent se jouer comme une sorte d’homophonie et les parties improvisées peuvent se disperser et devenir extrêmement hétérophoniques\.
 
@@ -927,7 +927,7 @@ Quand je dis claviers, cela veut dire que c’est aussi bien piano, synthétiseu
 
 ***Sexolidad*** \(novembre 1982 \- novembre 1983\) \- 30'\.
 
-*Pour quinze instruments*\(voir***Entrée*** \)
+*Pour quinze instruments* \(voir ***Entrée*** \)
 
 CM Radio France , 1983\.
 
@@ -955,24 +955,24 @@ CM Bremen 1984
 
 Cette soirée est composée de trois pièces musicales, ou trois parti­tions, dans lesquelles circulent une même atmosphère et des thèmes communs :
 
-\-*Entrée*, pour quinze instruments \(voir plus haut\),
+\- *Entrée*, pour quinze instruments \(voir plus haut\),
 
-\-*Scène du va\-et\-vient*, pour un pianiste et une comédienne\.
+\- *Scène du va\-et\-vient*, pour un pianiste et une comédienne\.
 
-Cette pièce se termine par*Bonjour, comment ça va ?*pour piano, violoncelle et clarinette basse,
+Cette pièce se termine par *Bonjour, comment ça va ?* pour piano, violoncelle et clarinette basse,
 
-\-*Sexolidad,* pour quinze instruments, \(voir plus haut\)\.
+\- *Sexolidad,* pour quinze instruments, \(voir plus haut\)\.
 
 Matricia Perséverse \(la comédienne\), c'est\-à\-dire la compositrice, présente le concert et fait une analyse particulièrement perverse de la soirée\.
 
 Cet ensemble peut être considéré comme matière à théâtre musical\.
 
-***Patajaslotcha*,** suite de danses \(1984\) \-25'\.  
+***Patajaslotcha*,** suite de danses \(1984\) \- 25'\.  
 Pour neuf instruments
 
 \(Trompette, 2 saxophones, chanteur, piano, contrebasse, 3 percussions\)
 
-Composé pour le*Bal de la Contemporaine\.*
+Composé pour le *Bal de la Contemporaine\.*
 
 CM Musica 84', Strasbourg \(1984\)\.
 
@@ -984,7 +984,7 @@ Editions Salabert, Paris
 
 ***Dialogue ordinaire avec la machine***
 
-ou***trois fables pour bande doucement philosophiques***\(1984\) \- 30'
+ou ***trois fables pour bande doucement philosophiques*** \(1984\) \- 30'
 
 *Bande magnétique stéréo*\.  
 Le compositeur et la machine ou comment l'approcher\.\.\. Les questions posées et comment y répondre\.\.\. Que disent les machines qui sont l'environnement quotidien d'un compositeur d'intérieur\.\.\. Et comment faire l'amour avec une boîte à rythme ?
@@ -1040,9 +1040,9 @@ Oui, je ne sais pas si ça éclaire grand chose\.\.\.
 
 8 violons I, 6 violons II, 6 altos, 4 violoncelles, 4 contrebasses\)
 
-CM27 avril 2005 BBC Symph\.Orch\.North Ireland, dir\.Philippe Nahon
+CM27 avril 2005 BBC Symph\.Orch\.North Ireland, dir\. Philippe Nahon
 
-C'est un amour qui tourne ou bien c'est un tourment\. Ça se répète toujours mais c'est jamais pareil\. Les idées vont et viennent\. Venue des grandes continuités symphoniques \(*Cellule 75\)*, mais ayant rencontré en chemin des fragmentations*\(Collection de petites pièces\)*, cette composition est une grande forme faite de discontinuité\.
+C'est un amour qui tourne ou bien c'est un tourment\. Ça se répète toujours mais c'est jamais pareil\. Les idées vont et viennent\. Venue des grandes continuités symphoniques \(*Cellule 75\)*, mais ayant rencontré en chemin des fragmentations *\(Collection de petites pièces\)*, cette composition est une grande forme faite de discontinuité\.
 
 C'est aussi un tournoiement\.
 
@@ -1067,7 +1067,7 @@ J'ai donc demandé à Colette Fellous d'embarquer dans ce rêve et de me le raco
 
 **1988 \- 1989**
 
-***Je me suis perdu*ou*Labyrinthe portrait*** \(mai 1987 \- janvier 1988\) \- 88'
+***Je me suis perdu* ou*Labyrinthe portrait*** \(mai 1987 \- janvier 1988\) \- 88'
 
 *Bande magnétique stéréo*\.
 
@@ -1077,7 +1077,7 @@ Réalisation : La Muse en Circuit\.
 
 Paris Atelier de Création Radiophonique 1988
 
-Oui, c'est un peu comme ça\. Il y a une romancière qui parle de son roman et c'est aussi une femme qui se raconte\. Il y a un compositeur qui, parcourant le labyrinthe, rencontre des personnages et qui, pris au piège, devient lui\-même un des personnages du sujet\. Il y a un roman qui devient le sujet de l'autre\.\.\. Ce*hörspiel* raconte comment la réalité de la vie est impliquée dans un roman, ou les aventures de la création littéraire\. Colette Fellous en parle\.
+Oui, c'est un peu comme ça\. Il y a une romancière qui parle de son roman et c'est aussi une femme qui se raconte\. Il y a un compositeur qui, parcourant le labyrinthe, rencontre des personnages et qui, pris au piège, devient lui\-même un des personnages du sujet\. Il y a un roman qui devient le sujet de l'autre\.\.\. Ce *hörspiel* raconte comment la réalité de la vie est impliquée dans un roman, ou les aventures de la création littéraire\. Colette Fellous en parle\.
 
 *Avec les voix de Hanna Schygulla et de Jean\-Baptiste Malartre\.*
 
@@ -1088,7 +1088,7 @@ Oui, c'est un peu comme ça\. Il y a une romancière qui parle de son roman et c
 *Pour deux saxophones, deux pianos, deux percussions*  
 Un Calypso métisse composé par un compositeur blanc qui n'arrive pas à décider entre une mesure à 5 ou à 4 temps\. Mais ça peut se danser\.
 
-***Conversation intime*** \(octobre 1987 \- mars 1988\) \-20'
+***Conversation intime*** \(octobre 1987 \- mars 1988\) \- 20'
 
 *Pour piano et percussion*
 
@@ -1104,7 +1104,7 @@ Editions Salabert, Paris
 
 CM Madrid, décembre 1988\.
 
-Un autre métissage de tango et de paso\-doble, extrait et réorchestré de*Patajaslotcha\.*
+Un autre métissage de tango et de paso\-doble, extrait et réorchestré de *Patajaslotcha\.*
 
 ***Créamaille 88*** \(septembre \- novembre 1988\) \- 45'
 
@@ -1118,9 +1118,9 @@ Reportage radiophonique sur la préparation d'une exposition de mode et un conco
 
 *Fiction réaliste\.*
 
-Texte\. C'est une sorte de roman \(150 pages\), fait de souvenirs, de réflexions sur la vie musicale etde contes fantastiques\. Ce texte, avec son parcours daté, est un peu la suite du*Journal intime* et n'est pas destiné à la publication\.
+Texte\. C'est une sorte de roman \(150 pages\), fait de souvenirs, de réflexions sur la vie musicale et de contes fantastiques\. Ce texte, avec son parcours daté, est un peu la suite du *Journal intime* et n'est pas destiné à la publication\.
 
-**1989 \-1990**
+**1989 \- 1990**
 
 ***Conte Sentimental N° 1*** \(janvier \- mars 1989\) \- 29'
 
@@ -1130,7 +1130,7 @@ Texte\. C'est une sorte de roman \(150 pages\), fait de souvenirs, de réflexion
 
 Réalisation : Brunhild Meyer et Luc Ferrari, en coproduction avec la Südwestfunk \(Baden\-Baden\)\.
 
-L'idée de cette série est de prendre une composition existante et de raconter l'histoire qui l'a déclenchée\. Ce conte &quot;sentimental&quot; est imbriqué bilingue français et allemand et se mélange à la musique\. Ici, la découverte et le choc d'un paysage dans les Causses de l'Aveyron\. Ce*Conte Sentimental* est le premier d'une série de 12, réalisés par Brunhild Meyer, sur une idée de Luc Ferrari\. Pour plus de précisions, se reporter au Catalogue &quot;Contes Sentimentaux&quot;\.
+L'idée de cette série est de prendre une composition existante et de raconter l'histoire qui l'a déclenchée\. Ce conte &quot;sentimental&quot; est imbriqué bilingue français et allemand et se mélange à la musique\. Ici, la découverte et le choc d'un paysage dans les Causses de l'Aveyron\. Ce *Conte Sentimental* est le premier d'une série de 12, réalisés par Brunhild Meyer, sur une idée de Luc Ferrari\. Pour plus de précisions, se reporter au Catalogue &quot;Contes Sentimentaux&quot;\.
 
 ***Extraits du corps*** \(février \- juin 1989\) \- \(1 h 30'\)\.
 
@@ -1138,7 +1138,7 @@ L'idée de cette série est de prendre une composition existante et de raconter 
 
 CMFestival des Manca, Nice, 2 juillet 1989\.
 
-Extraits de 9 partitions, s'échelonnant entre 1953 et 1985, en un montage savant et comme un concerto pour piano et orchestre en trois mouvements\. Le sens de cette recomposition est celui d'un compositeur qui raconte à sa manière une partie et undes aspects de sa vie : c'est comme des morceaux de son corps\.
+Extraits de 9 partitions, s'échelonnant entre 1953 et 1985, en un montage savant et comme un concerto pour piano et orchestre en trois mouvements\. Le sens de cette recomposition est celui d'un compositeur qui raconte à sa manière une partie et un des aspects de sa vie : c'est comme des morceaux de son corps\.
 
 C'est en pensant à ça que j'ai demandé à des jeunes femmes de parler devant un micro des morceaux de leur corps\. Cette bande, composée comme un poème, vient donner une dimension spéciale à cette aventure\.
 
@@ -1168,13 +1168,13 @@ Dans des paysages paradoxaux, un photographe ou un compositeur est caché, des j
 
 **Le Freischütz** \(*Die Wolfsschlucht*\) \(octobre 1989 \- janvier 1990\)
 
-*Bande magnétique*\(20' \) sur trois magnétophones\.
+*Bande magnétique* \(20' \) sur trois magnétophones\.
 
 CMBayrische Staatsoper de Munich, \(21 février 1990\)\.
 
 Un jour, un metteur en scène et un dramaturge viennent me voir et me disent :
 
-Nous montons pour l'Opéra de Munich, une nouvelle version mirobolante du*Freischütz* de Carl\-Maria von Weber\. Or, il se trouve qu'il y a un acte que ce compositeur n'a pas pu composer parce qu'il n'en avait pas les moyens techniques\. Voulez\-vous le composer ? Weber avait en effet décrit très précisément les bruits d'une forêt parcourue d'animaux plus ou moins mythiques et de mystères\.
+Nous montons pour l'Opéra de Munich, une nouvelle version mirobolante du *Freischütz* de Carl\-Maria von Weber\. Or, il se trouve qu'il y a un acte que ce compositeur n'a pas pu composer parce qu'il n'en avait pas les moyens techniques\. Voulez\-vous le composer ? Weber avait en effet décrit très précisément les bruits d'une forêt parcourue d'animaux plus ou moins mythiques et de mystères\.
 
 Ce que l'on me demandait était de me mettre en action comme un spécialiste de la fiction réaliste\.
 
@@ -1194,7 +1194,7 @@ Ainsi, la musique n'a pas été plaquée, mais élaborée, essayée et corrigée
 
 *Cinq musiciens, 1 comédienne, une vingtaine de figurants*
 
-Ce spectacle a été commandé par la Ville d'Echirolles pour sa biennale*Italie passion*, d'où son nom\. C'est une sorte de comédie musicale mêlant dialogues, sketches, danses, lumières, diapositives\. J'ai mis en scène ce spectacle avec les musiciens\-comédiens de La Muse en Circuit et des groupes locaux Ainsi, nous avons pu disposer d'une figuration nombreuse, d'un défilé de mode, inventer des tableaux vivants de la Renaissance italienne, des déesses de l'Antiquité, des paparazzi, etc\. Nous nous sommes bien amusés\.
+Ce spectacle a été commandé par la Ville d'Echirolles pour sa biennale *Italie passion*, d'où son nom\. C'est une sorte de comédie musicale mêlant dialogues, sketches, danses, lumières, diapositives\. J'ai mis en scène ce spectacle avec les musiciens\-comédiens de La Muse en Circuit et des groupes locaux Ainsi, nous avons pu disposer d'une figuration nombreuse, d'un défilé de mode, inventer des tableaux vivants de la Renaissance italienne, des déesses de l'Antiquité, des paparazzi, etc\. Nous nous sommes bien amusés\.
 
 Création lumineuse : Gilles Chatard\.
 
@@ -1212,9 +1212,9 @@ Textes de Colette Fellous\.
 
 Dramaturgie et mise en scène de Farid Paya\.
 
-Partis du roman de Colette Fellous,*Calypso*, d'une création radiophonique sur ce même roman et son auteur, d'une série de chansons sur le corps, les trois auteurs en sont ainsi arrivés à la conception d'un objet lyrique dans lequel se mêlent le chant, la parole, les bruits du monde et les secrets de l'intime,le tout appelé &quot;opéra de chambre&quot; puisque cela se passe dans une chambre d'hôtel\.
+Partis du roman de Colette Fellous, *Calypso*, d'une création radiophonique sur ce même roman et son auteur, d'une série de chansons sur le corps, les trois auteurs en sont ainsi arrivés à la conception d'un objet lyrique dans lequel se mêlent le chant, la parole, les bruits du monde et les secrets de l'intime,le tout appelé &quot;opéra de chambre&quot; puisque cela se passe dans une chambre d'hôtel\.
 
-Par suite d'un malentendu entre la romancière, le metteur en scène et le compositeur, cet opéra de chambre n'est plus représentable\. Une nouvelle version musicale existe, elle a pour titre*Chansons pour le corps* \(voir 1994\)\.
+Par suite d'un malentendu entre la romancière, le metteur en scène et le compositeur, cet opéra de chambre n'est plus représentable\. Une nouvelle version musicale existe, elle a pour titre *Chansons pour le corps* \(voir 1994\)\.
 
 ***Comme une Fantaisie dite des Réminiscences*** \(déc\. 1989 – janv\. 1991\) \- 25'
 
@@ -1222,11 +1222,11 @@ Par suite d'un malentendu entre la romancière, le metteur en scène et le compo
 
 CM Albi, avril \(1994\)\.
 
-Il est question ici d'une véritable recomposition de la*Scène du va\-et\-vient* \(1980\), à partir des mêmes thèmes et des mêmes idées\. La composition se développe sur des éléments
+Il est question ici d'une véritable recomposition de la *Scène du va\-et\-vient* \(1980\), à partir des mêmes thèmes et des mêmes idées\. La composition se développe sur des éléments
 
 particulièrement dansants tandis qu'apparaissent, dans le miroir déformant de la mémoire,
 
-des réminiscences du*Clavecin bien tempéré*de Jean\-Sébastien Bach, sorte de livre de chevet, échantillonné et manipulé en un cycle hasardeux\. Cette Fantaisie, qui se balance entre une formule obsessionnelle et des fragments de mémoire, est peut\-être comme un hommage\.
+des réminiscences du *Clavecin bien tempéré* de Jean\-Sébastien Bach, sorte de livre de chevet, échantillonné et manipulé en un cycle hasardeux\. Cette Fantaisie, qui se balance entre une formule obsessionnelle et des fragments de mémoire, est peut\-être comme un hommage\.
 
 Editions Salabert, Paris
 
@@ -1240,7 +1240,7 @@ Christine Lagniel, piano
 
 CM Nice, Manca 1991
 
-*Pour trois instruments : clavier, bois aigu, bois grave*\(3 à 6'\)\.
+*Pour trois instruments : clavier, bois aigu, bois grave* \(3 à 6'\)\.
 
 Fait partie d'une série de commandes passées à une vingtaine de compositeurs pour un livre laser co\-édité par Albin Michel, le CIRM et Paris\-Musées\.
 
@@ -1258,7 +1258,7 @@ Coproduction Ars Sonora RNE2 / La Muse en Circuit\.
 
 Tous les matériaux concrets ont été enregistrés à Madrid\. Chaque lieu est en même temps le portrait d'une jeune femme, à la fois guide, interprète et actrice\. Les éléments ont été ensuite recomposés en studio, pour leur donner une dimension surréaliste, particulièrement madrilène\.
 
-*Prix Italia 1991*\(Prix spécial de la R\.A\.I\.\)\.
+*Prix Italia 1991* \(Prix spécial de la R\.A\.I\.\)\.
 
 *CD Musidisc 291302 \.*
 
@@ -1310,15 +1310,15 @@ Editions Salabert, Paris
 
 **1992\-1993**
 
-***Fugue de J\.S\.B*\.** \(mars 1992\)*\-*\(5'\)\.
+***Fugue de J\.S\.B*\.** \(mars 1992\) *\-* \(5'\)\.
 
 *Pour flûte, clarinette, clarinette basse, violoncelle, vibraphone et piano*
 
-Orchestration de la Fugue N°4 du Premier Livre du*Clavecin bien Tempéré* de Jean\-Sébastien Bach\.
+Orchestration de la Fugue N°4 du Premier Livre du *Clavecin bien Tempéré* de Jean\-Sébastien Bach\.
 
 Ecrit pour un spectacle dont je ne désire plus parler\.
 
-Musique pour le théâtre***Conversation Pieces*** deFrançois\-Michel Pesenti
+Musique pour le théâtre ***Conversation Pieces***  de François\-Michel Pesenti
 
 CM Marseille, Les Bernardines 1993
 
@@ -1326,7 +1326,7 @@ CM Marseille, Les Bernardines 1993
 
 *Bande magnétique stéréo*\.
 
-Fait partie d'une composition collective qui réunit la participation des compositeurs de La Muse en Circuit et qui a pour titre*Un Impossible Pari\(s\)*\. Dans la série*Metropolis*produite par Akustische Kunst, WDR, Köln\.
+Fait partie d'une composition collective qui réunit la participation des compositeurs de La Muse en Circuit et qui a pour titre *Un Impossible Pari\(s\)*\. Dans la série *Metropolis* produite par Akustische Kunst, WDR, Köln\.
 
 ***Bistro*** \(juin \- octobre 1993\) \- 60'
 
@@ -1336,7 +1336,7 @@ CM Paris 1993
 
 Composé pour le spectacle chorégraphique d'Anne\-Marie Reynaud\.
 
-Cette bande est faite de plusieurs éléments : un enregistrement de*Patajaslotcha*, suite de danses autour desquelles s'articulent des séquences de compositions bruitistes ou électroniques, dans lesquelles on trouve aussi des citations qui situent le bistro dans les années 50\. \(Édith Piaf, Hawkins\.\.\.\)
+Cette bande est faite de plusieurs éléments : un enregistrement de *Patajaslotcha*, suite de danses autour desquelles s'articulent des séquences de compositions bruitistes ou électroniques, dans lesquelles on trouve aussi des citations qui situent le bistro dans les années 50\. \(Édith Piaf, Hawkins\.\.\.\)
 
 ***Porte ouverte sur ville*** \(novembre 1992 \- novembre 1993\) \- 32'
 
@@ -1348,7 +1348,7 @@ Bande réalisée dans le studio de musique électronique de la WDR\.
 
 Commande du Département de Musique Nouvelle de la WDR\.
 
-La bande de*Porte Ouverte sur Ville*est faite en partie de prélèvements hasardeux de radio : prélèvements du monde, bribes de phrase ou de musiques, émotion ou langue de bois, irrationnel, instant saisi, imbriqué dans le présent\.\.\. c'est une apparition\. Quelqu'un se promène dans cet éparpillement et symbolise la présence de l'observateur\. Enfin, des sons musicaux &quot;abstraits&quot; se mêlent au
+La bande de *Porte Ouverte sur Ville* est faite en partie de prélèvements hasardeux de radio : prélèvements du monde, bribes de phrase ou de musiques, émotion ou langue de bois, irrationnel, instant saisi, imbriqué dans le présent\.\.\. c'est une apparition\. Quelqu'un se promène dans cet éparpillement et symbolise la présence de l'observateur\. Enfin, des sons musicaux &quot;abstraits&quot; se mêlent au
 
 tissu réaliste et créent des distances ou des profondeurs de champ\. Ainsi les musiciens jouent un véritable contrepoint, s'approchant ou s'intégrant aux sons
 
@@ -1356,11 +1356,11 @@ de la bande, dialoguant avec eux ou, au contraire, vivant leur vie indépendante
 
 ***Chansons pour le corps*** \(mars 1988 \- janvier 1994\) \- 40'
 
-*Pour ensemble instrumental et chanteuse*\.*1 chanteuse, 2 clarinettes, piano, synthétiseur, percussion et bande magnétique stéréo\.*
+*Pour ensemble instrumental et chanteuse*\. *1 chanteuse, 2 clarinettes, piano, synthétiseur, percussion et bande magnétique stéréo\.*
 
 CM Paris SonMu GRM 1995
 
-Les*Chansons pour le corps* sont faites de deux éléments\. Une bande qui est une sorte de symphonie d'interviews de femmes qui parlent du corps et une composition instrumentale et chantée, composée à partir de textes de Colette Fellous\.
+Les *Chansons pour le corps* sont faites de deux éléments\. Une bande qui est une sorte de symphonie d'interviews de femmes qui parlent du corps et une composition instrumentale et chantée, composée à partir de textes de Colette Fellous\.
 
 Chanson\-opéra peut\-être ou lieder\-mélodie ou mélodrame chanté ou oratorio\-chansonnette ou aria, tant de choses passent à travers un labyrinthe\. Ces chansons disent des yeux, des mains et du reste du corps, leur simplicité et leur complexité\.
 
@@ -1374,7 +1374,7 @@ Chanson\-opéra peut\-être ou lieder\-mélodie ou mélodrame chanté ou oratori
 
 CMParis SonMu GRM 1995
 
-Cette partition est l'imbrication en alternance de*L'escalier des aveugles*et*Chansons pour le corps* \(voir plus haut\)\. Ainsi l'addition de ces deux œuvres constitue un programme de concert\.
+Cette partition est l'imbrication en alternance de *L'escalier des aveugles* et *Chansons pour le corps* \(voir plus haut\)\. Ainsi l'addition de ces deux œuvres constitue un programme de concert\.
 
 ***Fable de la démission et du cendrier\.*** Février\-juin 1994\. \- 25'
 
@@ -1386,7 +1386,7 @@ CM Maison de la Radio, février 1995\.
 
 &quot;En 1982, j'ai créé une association\. Elle réunissait dans un atelier, quelques musiciens venus d'horizons différents\. Nous l'avons appelée La Muse en Circuit\. Au bout de 12 ans, j'ai pensé qu'il était temps de la laisser vivre sans moi, qu'il était temps pour moi de reprendre ma liberté\. C'est pourquoi j'ai démissionné de ma charge de président\.
 
-Pendant le même temps, exactement, j'écrivais une partition pour 2 pianos et 2 clarinettes qui a suivi toutes les péripéties de cette affaire\. J'inventais dans le même temps, un procédé formel que j'appelais avec une certaine impertinence :*Hypersérialisme Post\-informatique \!*
+Pendant le même temps, exactement, j'écrivais une partition pour 2 pianos et 2 clarinettes qui a suivi toutes les péripéties de cette affaire\. J'inventais dans le même temps, un procédé formel que j'appelais avec une certaine impertinence : *Hypersérialisme Post\-informatique \!*
 
 Ce qui est singulier dans cette histoire c'est le temps, le printemps, comment naît la végétation qui fait les idées, comment ces idées se sont retrouvé groupées en un
 
@@ -1396,7 +1396,7 @@ Editions Salabert, Paris
 
 ***Je courais tant de buts divers*** \(Août 1994\)
 
-Texte autobiographique racontant une partie de ma vie qui pourrait représenterlepremier chapitre d'un livre de mémoires si toutefois j'ai le courage de l'écrire\.
+Texte autobiographique racontant une partie de ma vie qui pourrait représenter lepremier chapitre d'un livre de mémoires si toutefois j'ai le courage de l'écrire\.
 
 ***Portrait de Michel Portal*** \(octobre 1994 \- février 1995\) \- 45'
 
@@ -1414,7 +1414,7 @@ le 27 avril 1995\.
 
 CM GRAME Marseille 1997
 
-Suite de pièces tirées du théâtre musical*Journal intime*
+Suite de pièces tirées du théâtre musical *Journal intime*
 
 Chaque pièce porte maintenant un titre qui la lie à l'ancienne forme théâtrale et donc au texte, sans que l'on ait le besoin de le connaître\. Simplement, ces titres placent le morceau musical dans une attention poétique\.
 
@@ -1441,7 +1441,7 @@ Montage de projections de diapositives et vidéo composé par Ellen Kooi\.
 
 Composition musicale conçue pour un renouvellement avec 6 sources CD ainsi que 8 projections de diapositives et 2 vidéos représentant des rencontres aléatoires à l'infini pour un environnement permanent\.
 
-Créée lors de la rétrospective Luc Ferrari en Pays\-Bas, en octobre 1995\.
+Créée lors de la rétrospective Luc Ferrari en Pays\-Bas, en octobre 1995\. 
 
 ***Madame de Shanghai*** \(juillet \- novembre 1996\) \- 15'
 
@@ -1451,7 +1451,7 @@ Bande réalisée aux Ateliers UPIC\.
 
 CM Paris 1997 Trio d’Argent
 
-Au cours des enregistrements que j'ai faits dans Paris 13e ou*China Town*, je rencontre Madame de Shanghai et Orson Welles\. Les 3 flûtes jouent une musique qui n'a pas de relation avec la bande, elles apparaissent comme dans un miroir brisé\.
+Au cours des enregistrements que j'ai faits dans Paris 13e ou *China Town*, je rencontre Madame de Shanghai et Orson Welles\. Les 3 flûtes jouent une musique qui n'a pas de relation avec la bande, elles apparaissent comme dans un miroir brisé\.
 
 *CD Musique d'Aujourd'hui 9701 MDA M7 847*
 
@@ -1459,7 +1459,7 @@ Au cours des enregistrements que j'ai faits dans Paris 13e ou*China Town*, je re
 
 \(décembre 1996 \- juin 1997\) \- 55'
 
-*Hörspiel bilingue français\-allemand*, réalisé au studio*post\-billig*\.
+*Hörspiel bilingue français\-allemand*, réalisé au studio *post\-billig*\.
 
 Commande de la Südwestfunk\.
 
@@ -1487,7 +1487,7 @@ Editions Salabert, Paris
 
 *pour 17 instruments sonorisés et son mémorisé\.*
 
-\(flûte, hautbois, clarinette, clarinette basse, basson, trompette, trombone, saxophone, piano, 2 percussions, 2 violons, 1 alto,2 violoncelles,1 contrebasse\)
+\(flûte, hautbois, clarinette, clarinette basse, basson, trompette, trombone, saxophone, piano, 2 percussions, 2 violons, 1 alto, 2 violoncelles, 1 contrebasse\)
 
 CM Gent 1998 Champ d’Action
 
@@ -1501,12 +1501,12 @@ Editions Salabert, Paris
 
 *Sons mémorisés*
 
-Réalisé au studio*post\-billig\.*
+Réalisé au studio *post\-billig\.*
 
-&quot;J'ai toujours hésité avant de faire circuler un*Presque rien*\. Par exemple le premier a mis deux années avant de sortir de sa cachette et ça a continué ainsi\. Et pour le quatrième, il a fallu neuf années d'hésitation\. Mais le voilà\. Peut\-être c'est parce que c'est un vrai faux
+&quot;J'ai toujours hésité avant de faire circuler un *Presque rien*\. Par exemple le premier a mis deux années avant de sortir de sa cachette et ça a continué ainsi\. Et pour le quatrième, il a fallu neuf années d'hésitation\. Mais le voilà\. Peut\-être c'est parce que c'est un vrai faux
 
 *presque rien*où la réalité et le mensonge sont mêlés\. Il s'agit de la remontée du vieux village de Vintimille\.&quot;  
-*Sub rosa,BelgiqueSR252*2006
+*Sub rosa, BelgiqueSR252* 2006
 
   
 ***Les émois d'Aphrodite*** \(1986 \- 1998\) – 25’
@@ -1523,7 +1523,7 @@ Sons mémorisés réalisés à l'*Atelier post\-billig\.*
 
 ***Far West News*** \(1998\-1999\)
 
-Pièce radiophonique en 3 parties réalisée à*l’Atelier post\-billig*\.
+Pièce radiophonique en 3 parties réalisée à *l’Atelier post\-billig*\.
 
 Commande de NPS Hilversum\.
 
@@ -1547,7 +1547,7 @@ C’est fait\.
 
 CM Amsterdam 1999
 
-Far\-West News Episode N° 1 CD*Signature, France**ASIN: B00005Q4KU*
+Far\-West News Episode N° 1 CD *Signature, France**ASIN: B00005Q4KU*
 
 **1999\-2000**
 
@@ -1561,7 +1561,7 @@ CMParis, Radio France Janvier 2001
 
 Dans une durée choisie de 21 minutes, j’ai décidé d’un certain nombre d'éléments électroacoustiques et d’écriture instrumentale ayant des caractères déterminés\. J’ai ensuite demandé à un logiciel de me les placer un par un, dans ces 21 minutes\. J’ai donc réalisé la bande et écrit la partition à partir de ces données hasardeuses\. Ai\-je triché ? Peut\-être, mais pas trop\.
 
-\(Depuis l'automne 99, j'ai entrepris la composition d'une nouvelle série d'œuvre dont le titre général est*&quot;Exploitation des concepts&quot;\.*Il s'agit justement, d'utiliser les concepts expérimentés durant tout mon passé, et ceci dans toutes les directions possibles\.\)
+\(Depuis l'automne 99, j'ai entrepris la composition d'une nouvelle série d'œuvre dont le titre général est *&quot;Exploitation des concepts&quot;\.* Il s'agit justement, d'utiliser les concepts expérimentés durant tout mon passé, et ceci dans toutes les directions possibles\.\)
 
 ***Les Archives sauvées des Eaux*** \(2000\) \- 48'
 
@@ -1591,9 +1591,9 @@ Création Paris 2000 par CCMix
 L'utilisation des souvenirs n'est pas une chose nouvelle pour moi qui suis un récidiviste de l'autobiographie\. Ce qui est différent ici, c'est l'installation du son et de l'image\. De la même manière que je suis un compositeur\-preneur de son, je suis là un compositeur preneur d'image\.
 
 Le cycle des souvenirs signifie aussi que tous les éléments sont architecturés en cycles qui, en se superposant, produisent des rencontres hasardeuses\. C'est pour cela que tout est tournant\.  
-\(Production post\-billig avec l'aire de Césaré et du CCMix\)  
-Version fixée:*Blue Chopsticks USA BC8, distrib\.France: Chronowax – 2002*  
-  
+\(Production post\-billig avec l'aire de Césaré et du CCMix\)   
+Version fixée: *Blue Chopsticks USA BC8, distrib\.France: Chronowax – 2002*  
+   
   
 **2000\-2001**   
 
@@ -1604,7 +1604,7 @@ Version fixée:*Blue Chopsticks USA BC8, distrib\.France: Chronowax – 2002*
 
 *pour sons mémorisés solo*
 
-Cette composition est faite avec les mêmes éléments musicaux que l'*Exploitation des concepts 1*, dont le titre était*Archives Sauvées des Eaux*\.
+Cette composition est faite avec les mêmes éléments musicaux que l'*Exploitation des concepts 1*, dont le titre était *Archives Sauvées des Eaux*\.
 
 Ceci pour dire que l'idée d'exploitation me permet de revenir sur des sons et même des séquences déjà utilisées, mais toujours avec des idées différentes et un point de vue compositionnel méconnaissable\.
 
@@ -1637,11 +1637,11 @@ tautologie, donne un aspect totalement neuf au son mémorisé\. Les idées de ta
 ***Exploitation des concepts N° 5***
 
 *Pour 15 instruments amplifiés et sons mémorisés*  
-\(flûte, hautbois, clarinette, clarinette basse, basson, trompette, trombone, piano, percussion,  
+\(flûte, hautbois, clarinette, clarinette basse, basson, trompette, trombone, piano, percussion,   
 2 violons, alto, violoncelle, contrebasse\)  
 CM6 avril 2004 Paris, Théâtre Silvia Monfort, Ensemble Ars Nova  
 Ces deux dernières partitions sont en principe destiné à être programmées ensemble\. Les sons mémorisés sont le résultat d’une séance de travail néoimprovisé avec Noël  
-Akchoté, Roland Auzet et Luc Ferrari\. La prise de son a eu lieu dans le studio de La Muse en Circuit\.  
+Akchoté, Roland Auzet et Luc Ferrari\. La prise de son a eu lieu dans le studio de La Muse en Circuit\.   
 
 
 **2002 \- 2003**
@@ -1652,10 +1652,10 @@ Akchoté, Roland Auzet et Luc Ferrari\. La prise de son a eu lieu dans le studio
 
 CM Tokyo, 25\-10\-03 par l’ensemble NOMAD, Dir\. Norio Sato
 
-Commande deNew Generation, Tokyo  
+Commande de New Generation, Tokyo  
 Ce Sextet est peut\-être la première partition où j’utilise le concept improvisation destinée à l’écriture, qui deviendra dans les travaux suivants l’improvisation utilisée comme plongée dans l’inconscient et l’écriture comme travail de réflexion\.
 
-***Les Anecdotiques*** \(2001 – 2002\)**–** 54’  
+***Les Anecdotiques*** \(2001 – 2002\) **–**  54’  
 **Exploitation des Concepts N° 6**   
 Pièce radiophonique pour DeutschlandRadio Berlin
 
@@ -1671,8 +1671,8 @@ Grand Prix 2005 Charles Cros In Memoriam
 
 CM La Chaux\-de\-Fonds, 25/05/2003
 
-Saliceburry est un mot accroché par le hasard et l’inconscient avec une orthographe inventée\. C’est donc à l’origine un mensonge et tout ce que je pourrais dire sur cette pièce peut être considéré comme tel\.  
-*Subrosa,BelgiqueSR252*2006
+Saliceburry est un mot accroché par le hasard et l’inconscient avec une orthographe inventée\. C’est donc à l’origine un mensonge et tout ce que je pourrais dire sur cette pièce peut être considéré comme tel\.   
+*Sub rosa, BelgiqueSR252* 2006
 
   
 ***Rencontres fortuites*** pour alto, piano et SM\. \(7 janvier – 11 juin 2003\) \- 21’25  
@@ -1683,7 +1683,7 @@ J'avais d'abord appelé cette pièce 7 ou 8 anecdotes et abstractions pour Alto,
 Les deux titres avaient l'avantage d'être vrais ce qui n'est pas toujours le cas\. Il y a donc dans cette pièce 7 ou 8 séquences qui font passer d'une écoute abstraite à une écoute anecdotique\. Je l'espère renouvelée et toujours active\.
 
 ***Quatre Morceaux en Forme de Promenade*** \(28 juin \- 27 décembre 2003\) – 21’  
-*Pour 4 Cuivres, 2 Percussions et SM*  
+*Pour 4 Cuivres, 2 Percussions et SM*   
 Commande accordée par le GMEA  
 Centre de création musicale d’Albi, Tarn, avec le soutien de l’Etat
 
@@ -1694,7 +1694,7 @@ De la même manière que les percussions sont employées comme percussions les S
 
 Ceci étant dit, toute ressemblance avec des titres existants ne serait que le fruit du hasard\.
 
-Ces 4 Morceaux se situent dans une sorte de décor bien précis où l'écriture instrumentale entre en dialectique avec ce que j'aime à nommer SM \(c'est\-à\-dire Sons Mémorisés\)\. En effet, tous les sons concrets ont été enregistrés en Sicile et plus précisément à Taormina au mois d'août 2003\.  
+Ces 4 Morceaux se situent dans une sorte de décor bien précis où l'écriture instrumentale entre en dialectique avec ce que j'aime à nommer SM \(c'est\-à\-dire Sons Mémorisés\)\. En effet, tous les sons concrets ont été enregistrés en Sicile et plus précisément à Taormina au mois d'août 2003\.   
   
   
 **2003 – 2005**
@@ -1732,7 +1732,7 @@ Après, tout a fonctionné, j’ai repéré des mots\-clefs, des sons pivots, de
 **  
 *Après Presque Rien*** \(avril – novembre 2004\) \- 25’  
 Commande du CCMIX \- Paris, de Musiques Nouvelles – Mons, de Art Zoyd – Valenciennes avec le soutien des fonds européens Feder Interreg III  
-*Pour 14 Instruments et 2 Samplers*  
+*Pour 14 Instruments et 2 Samplers*   
 \(Flûte, Hautbois, Clarinette\., Clar\.basse, Trompette, Saxo ténor, Saxo baryton, Trombone, Piano, Perc, Violon 1, Violon 2, Viola, Violoncelle, C\-basse\)
 
 CM 20 avril 2006 Palais des Beaux Arts, Bruxelles
@@ -1748,15 +1748,15 @@ Pour deux DJ
 
 CM12 février 2005 Les Instants Chavirés, Montreuil par e*R*ikm et m’auteur
 
-C’est après avoir joué les*Archives sauvées des eaux* avec e*R*ikm, que je lui ai proposé ce nouveau travail\.
+C’est après avoir joué les *Archives sauvées des eaux* avec e*R*ikm, que je lui ai proposé ce nouveau travail\.
 
-Après ma première expérience qui m’a fait progresser dans un domaine où je n’avais jamais été acteur, les propositions que je fais avec*Les ProtoRythmiques* m’amènent sur un terrain plus aventureux et aussi plus &quot;démocratique&quot; \(si toutefois on peut encore employer ce mot après l’usage qu’en en fait l’administration Busch\)\.
+Après ma première expérience qui m’a fait progresser dans un domaine où je n’avais jamais été acteur, les propositions que je fais avec *Les ProtoRythmiques* m’amènent sur un terrain plus aventureux et aussi plus &quot;démocratique&quot; \(si toutefois on peut encore employer ce mot après l’usage qu’en en fait l’administration Busch\)\.
 
   
-**  
-2005**
+  
+**2005**
 
-***Didascalies 2*** ou***Trois personnages en quête de notes*** \(2005\) Durée: env\. 20’
+***Didascalies 2*** ou ***Trois personnages en quête de notes*** \(2005\) Durée: env\. 20’
 
 *Pour deux pianos et un troisième instrument très puissant pouvant tenir une note très forte*
 
@@ -1772,11 +1772,11 @@ Très très obsessssssionnel\!
 
 ***Morbido Symphonie*** \(mars – août 2005\) Durée: env\. 25’
 
-*Pour 15 instruments et SM*\(Flûte, Hautbois, Clarinette, Clar\-basse, Basson, Cor, Trompette, Trombone, Piano,Violon 1, Violon 2, Violas, Violoncelle 1, Violoncelle 2, Contrebasse\)
+*Pour 15 instruments et SM* \(Flûte, Hautbois, Clarinette, Clar\-basse, Basson, Cor, Trompette, Trombone, Piano,Violon 1, Violon 2, Violas, Violoncelle 1, Violoncelle 2, Contrebasse\)
 
 \(inachevée, car seul deux mouvements sont composés, le troisième était en devenir\)
 
-C’est une pièce aussi bien morbide que*morbido*\.et «qui va être très drôle»\.
+C’est une pièce aussi bien morbide que *morbido*\.et «qui va être très drôle»\.
 
 ***Dérivatif***
 
@@ -1784,4 +1784,4 @@ Archives SM
 
 Destiné à «seven things», Edinburgh
 
-a été inachevé en 2005a été inachevé en 2005
+a été inachevé en 2005
